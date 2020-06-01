@@ -33,7 +33,8 @@ La Mesa police shoot woman in the face. [Tweet](https://mobile.twitter.com/etpar
 
 >**Colorado**
 
-Denver cop Cops shoves reporters into fire. [Tweet](https://twitter.com/tessrmalle/status/1266945413258653696)         
+Denver cop shoves reporters into fire. [Tweet](https://twitter.com/tessrmalle/status/1266945413258653696)         
+Denver cop shoot pepper balls at a man and pregnant woman in their car. [Reddit]( https://old.reddit.com/r/2020PoliceBrutality/comments/gumff6/denver_police_fire_pepper_balls_at_a_car_with_a/)              
 
 >**Connecticut**
 
@@ -59,6 +60,7 @@ Chicago police repeatedly hitting protesters with batons. [Tweet](https://twitte
    
 
 >**Indiana**
+Indianapolis police beat and shove two women. [Reddit](https://old.reddit.com/r/PublicFreakout/comments/guffju/indianapolis_police_on_women_rights/)            
 
 >**Iowa**
 
@@ -79,8 +81,6 @@ Louisville police shot a man DEAD. [Article / Video](https://www.wave3.com/2020/
 >**Maryland**
 
 >**Massachusetts**
-
-Boston police smashing their own windshield. [Youtube](https://www.youtube.com/watch?v=0tVPHDWnYxY&feature=youtu.be)       
 
 >**Michigan**
 
