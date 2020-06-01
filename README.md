@@ -1,3 +1,10 @@
+This is a list showcasing US police brutality and misconduct during the George Floyd protests. 
+
+You can access my list on [github](https://github.com/freezman14/Floyd-Protests-Police-Accountability-Links)
+
+If you’d like to contribute please visit /r/2020PoliceBrutality and post new videos in the [compilation megathread.](https://old.reddit.com/r/2020PoliceBrutality/comments/gu1mrc/mega_thread_compilation_of_police_brutality/?sort=new)        
+____________________
+
 >**Alabama**
 
 >**Alaska**
@@ -82,6 +89,7 @@ Detroit police shove a man to the ground. [Tweet](https://twitter.com/arlenparsa
 Fort Wayne police used tear gas on crowd for no apparent reason. [Tweet](https://twitter.com/blazedyukhei/status/1266533569029177346)        
 
 Fort Wayne police shoot a man’s eye out. [Tweet](https://twitter.com/notbalin/status/1266972999296704513)        
+
 >**Minnesota**
 
 Minneapolis cops shout “light ‘em up” and fire rubber bullets at people sitting on their private property. [Tweet](https://twitter.com/tkerssen/status/1266921821653385225)     
@@ -96,7 +104,7 @@ Minneapolis police shoot a reporter in the face and blind her with tracer rounds
 
 Minnesota State Patrol shoots tear gas and rubber bullets at reporters. [Tweet describing]( https://twitter.com/mollyhf/status/1266911382613692422) - [Tweet showing bullet damage]( https://twitter.com/mollyhf/status/1266962492485500929/photo/1)     
 
-Minneapolis  police pepper spray reporter while he’s face down on the ground. [Tweet Angle 1](https://twitter.com/MichaelAdams317/status/1266945268567678976) - [Tweet Angle 2]( https://twitter.com/MichaelAdams317/status/1267203751913422849)    
+Minneapolis  police pepper spray reporter while he’s face down on the ground. [Tweet Angle 1](https://twitter.com/MichaelAdams317/status/1266945268567678976) - [Tweet Angle 2](https://twitter.com/MichaelAdams317/status/1267203751913422849)    
 
 Minneapolis police shoot at a reporter’s car – injure him and break the window. [Tweet talking and showing cuts]( https://twitter.com/JaredGoyette/status/1266961243476299778) - [Tweet showing inside the car]( https://twitter.com/RyanFaircloth/status/1266967500383834114)     
 
@@ -233,7 +241,6 @@ Seattle police pepper spray young child. [Article / video](https://www.fox10phoe
 Seattle police continuously beats man on the ground. [Tweet](https://twitter.com/Jevne_Turqvie/status/1266871649288232965)     
 
 Seattle police destroying building glass after protests. [Tweet](https://twitter.com/itstime4change6/status/1267296534959448065?s=20)      
-
 
 >**West Virginia**
 
