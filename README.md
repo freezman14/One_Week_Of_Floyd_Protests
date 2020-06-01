@@ -2,7 +2,7 @@ This is a list showcasing US police brutality and misconduct during the George F
 
 You can access my list on [github](https://github.com/freezman14/Floyd-Protests-Police-Accountability-Links)
 
-If you’d like to contribute please visit /r/2020PoliceBrutality and post new videos in the [compilation megathread.](https://old.reddit.com/r/2020PoliceBrutality/comments/gu1mrc/mega_thread_compilation_of_police_brutality/?sort=new)        
+If you’d like to contribute please visit [/r/2020PoliceBrutality](https://old.reddit.com/r/2020PoliceBrutality/) to post new videos.
 ____________________
 
 >**Alabama**
@@ -61,6 +61,10 @@ Chicago police repeatedly hitting protesters with batons. [Tweet](https://twitte
 
 >**Indiana**
 Indianapolis police beat and shove two women. [Reddit](https://old.reddit.com/r/PublicFreakout/comments/guffju/indianapolis_police_on_women_rights/)            
+Fort Wayne police used tear gas on crowd for no apparent reason. [Tweet](https://twitter.com/blazedyukhei/status/1266533569029177346)        
+
+Fort Wayne police shoot a man’s eye out. [Tweet](https://twitter.com/notbalin/status/1266972999296704513)        
+
 
 >**Iowa**
 
@@ -85,10 +89,6 @@ Louisville police shot a man DEAD. [Article / Video](https://www.wave3.com/2020/
 >**Michigan**
 
 Detroit police shove a man to the ground. [Tweet](https://twitter.com/arlenparsa/status/1266820422856826880)           
-
-Fort Wayne police used tear gas on crowd for no apparent reason. [Tweet](https://twitter.com/blazedyukhei/status/1266533569029177346)        
-
-Fort Wayne police shoot a man’s eye out. [Tweet](https://twitter.com/notbalin/status/1266972999296704513)        
 
 >**Minnesota**
 
@@ -125,6 +125,7 @@ Minneapolis law enforcement shoot and gas a medical tent. [Youtube, describing t
 >**Mississippi**
 
 >**Missouri**
+Kansas City police attempt to arrest a man leading the protest then spray the crowd. [Reddit](https://old.reddit.com/r/PublicFreakout/comments/guswxo/he_wasnt_even_addressing_the_police/)              
 
 >**Montana**
 
@@ -197,6 +198,8 @@ Portland cops disperse protesters before curfew. [Tweet](https://twitter.com/MrO
 Harrisburg cops pepper sprays people helping a man get up from the ground. [Tweet](https://twitter.com/gonzaloaflores/status/1266815380619702273)           
 
 Erie cop sprays and kicks woman on the ground. [Tweet angle 1](https://twitter.com/ItsKadynC/status/1266967646345613317) [Youtube angle 2](https://www.youtube.com/watch?v=GAU-cdtwR7M)                
+Philadelphia cop hits a cooperating man as he exists his car. [Youtube](https://www.youtube.com/watch?v=QDcCFN_LQPA&feature=youtu.be)        
+Philadelphia cops beat man and forcefully put his fingers on their baton.[Tweet](https://twitter.com/mkultranews/status/1267305587206807553)         
 
 >**Rhode Island**
 
@@ -241,6 +244,8 @@ Seattle police pepper spray young child. [Article / video](https://www.fox10phoe
 Seattle police continuously beats man on the ground. [Tweet](https://twitter.com/Jevne_Turqvie/status/1266871649288232965)     
 
 Seattle police destroying building glass after protests. [Tweet](https://twitter.com/itstime4change6/status/1267296534959448065?s=20)      
+
+Seattle police mace child in the face. [Tweet aftermath](https://twitter.com/julesstorres/status/1266904233393217543)      
 
 >**West Virginia**
 
