@@ -1,5 +1,7 @@
 This is a list showcasing US police brutality and misconduct during the George Floyd protests. 
 
+Count in the list: 85.
+
 You can access my list on [github](https://github.com/freezman14/Floyd-Protests-Police-Accountability-Links)
 
 If you’d like to contribute please visit [/r/2020PoliceBrutality](https://old.reddit.com/r/2020PoliceBrutality/) to post new videos.
@@ -233,7 +235,9 @@ Dallas police laughing and singing “America Fuck Yeah”, 50 feet away from th
 
 Houston cop ran over a woman on his horse. [Tweet](https://twitter.com/SVRFR_/status/1266551625092497408)         
 
-Houston cop shoved a woman onto the pavement. [Tweet]( https://twitter.com/AbkTrauma/status/1266511972524269569)        
+Houston cop shoved a woman onto the pavement. [Tweet](https://twitter.com/AbkTrauma/status/1266511972524269569)        
+
+San Antonio cop shoots a man twice that isn’t doing anything. [Reddit](https://old.reddit.com/r/PublicFreakout/comments/gu3s6j/police_shoots_protestor_for_no_reason/)        
 
 
 >**Utah**
