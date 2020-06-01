@@ -147,6 +147,15 @@ Kansas City police attempt to arrest a man leading the protest then spray the cr
 >**New Mexico**
 
 >**New York**
+Brookyln police pepper spray protesters for no apparent reason. [Tweet](https://old.reddit.com/r/2020PoliceBrutality/comments/gu2u28/more_documented_aggression_in_flatbush_brooklyn/)            
+
+Brookyln police arrest a medic for no clear reason. [Reddit](https://old.reddit.com/r/PublicFreakout/comments/gu9rey/brooklyn_police_chief_arresting_medic_as_he_keeps/)              
+
+Brooklyn police beat people with batons. [Tweet](https://twitter.com/j0ncampbell/status/1266514356071735296)     
+
+Brooklyn police bloody woman’s head. [Tweet]( https://twitter.com/theactivistTati/status/1266889419858075649)       
+
+Bronx police bloody a woman’s face. [Reddit](https://old.reddit.com/r/PublicFreakout/comments/gufcfv/dominican_officer_from_the_46th_precinct_on_ryer/)            
 
 NYPD driving into protestors. [Angle 1](https://v.redd.it/mztm15kh00251) [Angle 2](https://gfycat.com/misguidedrecklesscod)       
 
@@ -156,25 +165,17 @@ NYPD cop shoved a woman onto the pavement. [Tweet Angle 1](https://twitter.com/J
 
 NYPD cop shoves a guy into a metal fence. [Tweet](https://twitter.com/ZachReports/status/1266557305107202049)    
 
-Brooklyn police beat people with batons. [Tweet](https://twitter.com/j0ncampbell/status/1266514356071735296)     
-
 NYPD rips mask and pepper sprays a guy with his hands in the air. [Tweet](https://twitter.com/ajrupchandani/status/1266889115288711168) - [Reddit](https://v.redd.it/wlx0gyoe21251)         
-
-Rochester police shoot people filming. [Tweet](https://twitter.com/bleeezyy_/status/1266894195865931778)        
-
-Brooklyn police bloody woman’s head. [Tweet]( https://twitter.com/theactivistTati/status/1266889419858075649)       
 
 NYPD drives by man and slams him with car door. [Tweet]( https://twitter.com/DriveWendys/status/1266555286678048770)      
 
-Brookyln police pepper spray protesters for no apparent reason. [Tweet](https://old.reddit.com/r/2020PoliceBrutality/comments/gu2u28/more_documented_aggression_in_flatbush_brooklyn/)            
-
-Brookyln police arrest a medic for no clear reason. [Reddit](https://old.reddit.com/r/PublicFreakout/comments/gu9rey/brooklyn_police_chief_arresting_medic_as_he_keeps/)              
-
 NYPD attempts to run over a cyclist in a park after he seemingly threw something at the car. [Reddit](https://old.reddit.com/r/PublicFreakout/comments/guet33/nypd_police_car_attempts_to_run_over_bicyclist_in/)   
 
-Bronx police bloody a woman’s face. [Reddit](https://old.reddit.com/r/PublicFreakout/comments/gufcfv/dominican_officer_from_the_46th_precinct_on_ryer/)            
+New York cops continuously beat a protester on the ground [Tweet](https://twitter.com/jangelooff/status/1267287782155857923   
 
-New York cops continuously beat a protester on the ground [Tweet](https://twitter.com/jangelooff/status/1267287782155857923          
+Ney York cops pepper spray Senator. [Tweet](https://twitter.com/zellnor4ny/status/1266802303807500288)          
+
+Rochester police shoot people filming. [Tweet](https://twitter.com/bleeezyy_/status/1266894195865931778)        
 
 >**North Carolina**
 
@@ -184,11 +185,11 @@ New York cops continuously beat a protester on the ground [Tweet](https://twitte
 
 Columbus cop pepper sprays woman walking away from him. [Tweet](https://twitter.com/lalaitskelcey2/status/1266821476122058752)      
 
-Columbus police pepper spray photographer who is calmly standing on the curb. [Reddit](https://old.reddit.com/r/Columbus/comments/gtk192/photographer_being_pepper_sprayed_by_police/) - [Insta]( https://www.instagram.com/p/CA03DsTByLn/)       
+Columbus police pepper spray photographer who is calmly standing on the curb. [Reddit](https://old.reddit.com/r/Columbus/comments/gtk192/photographer_being_pepper_sprayed_by_police/) - [Insta](https://www.instagram.com/p/CA03DsTByLn/)       
 
 Columbus police shove and pepper spray protesters. [Tweet](https://twitter.com/KRobPhoto/status/1266796191469252610)     
 
-Columbus police pepper spray congresswoman during protest. [Tweet talking about it](https://twitter.com/SG_Hardin/status/1266758211299954689?s=20)  
+Columbus police pepper spray congresswoman during protest. [Youtube](https://www.youtube.com/watch?v=Z5iQtymMmxY) - [Tweet talking about it](https://twitter.com/SG_Hardin/status/1266758211299954689?s=20)  
 
 Columbus police pepper spray a medic showing her credentials. [Tweet](https://twitter.com/SAColumbus/status/1266867613872857094)        
 
@@ -224,13 +225,16 @@ Memphis cops tackle a woman to the ground. [Tweet](https://twitter.com/Desi_Sten
 
 Austin cops shoot rubber bullets at protesters chanting “hands up don’t shoot”. [Tweet]( https://twitter.com/highsettler/status/1266876480929349633)      
 
+Austin police spray a man in the face while he stands still ~3 feet away from them. [Reddti](https://old.reddit.com/r/Bad_Cop_No_Donut/comments/guhgfq/please_let_others_see_this_this_guy_did_not/)            
+
 Dallas police shot a woman in the face, she was coming home with groceries. [Tweet]( https://twitter.com/KevinRKrause/status/1266898396339675137)    
+
+Dallas police laughing and singing “America Fuck Yeah”, 50 feet away from there a wounded person is being treated on the ground. [Tweet](https://twitter.com/chadloder/status/1267262300919980032)         
 
 Houston cop ran over a woman on his horse. [Tweet](https://twitter.com/SVRFR_/status/1266551625092497408)         
 
 Houston cop shoved a woman onto the pavement. [Tweet]( https://twitter.com/AbkTrauma/status/1266511972524269569)        
 
-Dallas police laughing and singing “America Fuck Yeah”, 50 feet away from there a wounded person is being treated on the ground. [Tweet](https://twitter.com/chadloder/status/1267262300919980032)         
 
 >**Utah**
 
@@ -262,6 +266,6 @@ Seattle police mace child in the face. [Tweet aftermath](https://twitter.com/jul
  
 >**Unknown Location**
 
-Police rush and hit protesters because they waved signs and blocked their gun sight view. [Gfycat]( https://gfycat.com/tautimaginativedore)         
+Police rush and hit protesters after they waved signs and blocked their gun sight view. [Gfycat]( https://gfycat.com/tautimaginativedore)         
 Police spray people kneeling. [Tweet](https://twitter.com/taesvangogh/status/1266907922308558848)  
 Cop shoots a guy twice for no reason. [Reddit](https://old.reddit.com/r/Bad_Cop_No_Donut/comments/gu3679/jackbooted_criminal_cop_shoots_man_at_point_blank)       
