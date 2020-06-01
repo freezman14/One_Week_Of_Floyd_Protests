@@ -60,7 +60,9 @@ Chicago police repeatedly hitting protesters with batons. [Tweet](https://twitte
    
 
 >**Indiana**
+
 Indianapolis police beat and shove two women. [Reddit](https://old.reddit.com/r/PublicFreakout/comments/guffju/indianapolis_police_on_women_rights/)            
+
 Fort Wayne police used tear gas on crowd for no apparent reason. [Tweet](https://twitter.com/blazedyukhei/status/1266533569029177346)        
 
 Fort Wayne police shoot a man’s eye out. [Tweet](https://twitter.com/notbalin/status/1266972999296704513)        
@@ -78,6 +80,8 @@ Louisville cop shoots pepper bullets at a reporter while live. [Tweet](https://t
 
 Louisville police shot a man DEAD. [Article / Video](https://www.wave3.com/2020/06/01/man-shot-dead-th-broadway-identified/)
 
+Louisville police swarm and beat a man screaming on the ground. [Reddit](https://old.reddit.com/r/PublicFreakout/comments/gutezm/multiple_kentucky_state_police_troopers_tackled/)                      
+
 >**Louisiana**
 
 >**Maine**
@@ -89,6 +93,8 @@ Louisville police shot a man DEAD. [Article / Video](https://www.wave3.com/2020/
 >**Michigan**
 
 Detroit police shove a man to the ground. [Tweet](https://twitter.com/arlenparsa/status/1266820422856826880)           
+
+Grand Rapids cops fire flare at a man’s face. [Reddit](https://old.reddit.com/r/Bad_Cop_No_Donut/comments/gub8fx/police_shoot_protestor_point_blank_in_the_face/) – [Article](https://www.fox17online.com/news/local-news/grand-rapids/grpd-conducting-internal-investigation-after-viral-video-of-man-being-pepper-sprayed)           
 
 >**Minnesota**
 
@@ -125,6 +131,7 @@ Minneapolis law enforcement shoot and gas a medical tent. [Youtube, describing t
 >**Mississippi**
 
 >**Missouri**
+
 Kansas City police attempt to arrest a man leading the protest then spray the crowd. [Reddit](https://old.reddit.com/r/PublicFreakout/comments/guswxo/he_wasnt_even_addressing_the_police/)              
 
 >**Montana**
@@ -258,5 +265,3 @@ Seattle police mace child in the face. [Tweet aftermath](https://twitter.com/jul
 Police rush and hit protesters because they waved signs and blocked their gun sight view. [Gfycat]( https://gfycat.com/tautimaginativedore)         
 Police spray people kneeling. [Tweet](https://twitter.com/taesvangogh/status/1266907922308558848)  
 Cop shoots a guy twice for no reason. [Reddit](https://old.reddit.com/r/Bad_Cop_No_Donut/comments/gu3679/jackbooted_criminal_cop_shoots_man_at_point_blank)       
-Cops fire tear gas grenade at a man’s face. [Reddit](https://old.reddit.com/r/Bad_Cop_No_Donut/comments/gub8fx/police_shoot_protestor_point_blank_in_the_face/)     
-
