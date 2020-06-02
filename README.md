@@ -209,7 +209,9 @@ Kansas City law enforcement spray and arrest a man talking at them from 15 feet.
 
 >**Nebraska**
 
-Omaha law enforcement officer kicks protester already on the ground. [Tweet](https://twitter.com/reecereports/status/1267629669093978117)           
+Omaha law enforcement officer kicks protester already on the ground. [Tweet](https://twitter.com/reecereports/status/1267629669093978117)    
+
+Omaha law enforcement officers gas, kick and push protestors sitting on the ground. [YouTube](https://youtu.be/5eFncnHJjec)       
 
 >**Nevada**
 
