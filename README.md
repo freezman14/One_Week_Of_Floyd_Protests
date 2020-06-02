@@ -1,6 +1,6 @@
 This is a list showcasing US police brutality and misconduct during the George Floyd protests. 
 
-Count in the list: 148.
+Count in the list: 151.
 
 You can access my list on [github](https://github.com/freezman14/Floyd-Protests-Police-Accountability-Links)
 
@@ -39,7 +39,10 @@ Los Angeles law enforcement beat protesters for no apparent reason. [Tweet angle
 
 Los Angeles law enforcement beat protesters for no apparent reason. [Tweet](https://twitter.com/MattMcGorry/status/1267217360894562306)           
 
+Los Angeles law enforcement gassed ABC7 reporters. [Tweet](https://twitter.com/GMA/status/1266934049098121216)       
 Oakland law enforcement recklessly drives through protesters. [Reddit](https://old.reddit.com/r/PublicFreakout/comments/gttdkj/cop_driving_into_crowds_of_protestors/)             
+
+Oakland law enforcement shoot a reporter. [Tweet](https://twitter.com/SarahBelleLin/status/1266980899301683200)           
 
 Sacramento law enforcement shoot protester in the head. [Tweet](https://twitter.com/xotrevonantonio/status/1266994330054479874)      
 
@@ -129,6 +132,7 @@ Louisville law enforcement shoot and gas crowd and reporters. [Tweet](https://tw
 >**Maryland**
 
 >**Massachusetts**
+
 Boston law enforcement beat a man for no apparent reason. [Tweet](https://twitter.com/RimeAndTreason/status/1267268090351489024)         
 
 >**Michigan**
@@ -171,7 +175,7 @@ Minneapolis law enforcement shoot Reuters reporters with rubber bullets. [Articl
 
 Minneapolis law enforcement spray drive-by. [Reddit](https://old.reddit.com/r/Minneapolis/comments/gubpr3/mpd_with_another_drive_by_pepper_spraying/)  
 
-Minneapolis law enforcement fired rubber bullets at CBC reporters. [Tweet](https://twitter.com/MikeGeorgeCBS/status/1266916104951214080)    https://twitter.com/MikeGeorgeCBS/status/1267087091122528256      
+Minneapolis law enforcement fired rubber bullets at CBC reporters. [Tweet](https://twitter.com/MikeGeorgeCBS/status/1266916104951214080) - [Tweet](https://twitter.com/MikeGeorgeCBS/status/1267087091122528256)      
 
 Minneapolis law enforcement throws flash bang at reporters that are complying with orders. [Tweet](https://twitter.com/atrupar/status/1266910910137995264)    
 
@@ -187,6 +191,7 @@ Minneapolis law enforcement slash car tires. [Tweet](https://twitter.com/val_ebe
 
 Minneapolis law enforcement shooting at and harassing DW reporters. [Tweet](https://twitter.com/dwnews/status/1267312424463609856)            
 
+Minneapolis law enforcement shoot a reporter with a huge camera and a helmet labeled PRESS. [Tweet](https://twitter.com/brianstelter/status/1266910826797113347)            
 
 >**Mississippi**
 
@@ -237,7 +242,7 @@ New York law enforcement drives by man and slams him with car door. [Tweet]( htt
 
 New York law enforcement attempts to run over a cyclist in a park after he seemingly threw something at the car. [Reddit](https://old.reddit.com/r/PublicFreakout/comments/guet33/nypd_police_car_attempts_to_run_over_bicyclist_in/)   
 
-New York law enforcement continuously beat a protester on the ground [Tweet](https://twitter.com/jangelooff/status/1267287782155857923   
+New York law enforcement continuously beat a protester on the ground [Tweet](https://twitter.com/jangelooff/status/1267287782155857923)   
 
 Ney York law enforcement pepper spray Senator. [Tweet](https://twitter.com/zellnor4ny/status/1266802303807500288)          
 
@@ -250,6 +255,7 @@ New York law enforcement  officer pulls out his pistol and aims at protesters. [
 Rochester law enforcement shoot people filming. [Tweet](https://twitter.com/bleeezyy_/status/1266894195865931778)        
 
 >**North Carolina**
+
 Raleigh law enforcement shoot and gas crowd. [Tweet](https://twitter.com/BarkyBoogz/status/1266893772060790784)        
 
 Raleigh law enforcement shoot at a crowd. [Tweet](https://twitter.com/LiamCurrie16/status/1266948510022320130)       
