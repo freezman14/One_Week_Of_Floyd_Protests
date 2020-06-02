@@ -1,6 +1,6 @@
 This is a list showcasing US police brutality and misconduct during the George Floyd protests. 
 
-Count in the list: 151.
+Count in the list: 158.
 
 You can access my list on [github](https://github.com/freezman14/Floyd-Protests-Police-Accountability-Links)
 
@@ -9,11 +9,11 @@ ____________________
 
 >**Alabama**
 
->**Alaska**
-
->**Arizona**
+Huntsville law enforcement step on women that fell as a result of them pushing protesters. [Twitter]( https://twitter.com/ETfonehome97/status/1267657232411435008)          
 
 >**Arkansas**
+
+Little Rock law enforcement shoot at and gas kneeling protesters. [Tweet angle 1](https://twitter.com/KATVShelby/status/1267554421019475972)  - [Tweet angle 2](https://twitter.com/KATVNews/status/1267509911954440194)    
 
 >**California**
 
@@ -39,12 +39,17 @@ Los Angeles law enforcement beat protesters for no apparent reason. [Tweet angle
 
 Los Angeles law enforcement beat protesters for no apparent reason. [Tweet](https://twitter.com/MattMcGorry/status/1267217360894562306)           
 
-Los Angeles law enforcement gassed ABC7 reporters. [Tweet](https://twitter.com/GMA/status/1266934049098121216)       
+Los Angeles law enforcement gassed ABC7 reporters. [Tweet](https://twitter.com/GMA/status/1266934049098121216)   
+    
 Oakland law enforcement recklessly drives through protesters. [Reddit](https://old.reddit.com/r/PublicFreakout/comments/gttdkj/cop_driving_into_crowds_of_protestors/)             
 
 Oakland law enforcement shoot a reporter. [Tweet](https://twitter.com/SarahBelleLin/status/1266980899301683200)           
 
+Riverside law enforcement break a car window for no apparent reason. [Reddit](https://old.reddit.com/r/PublicFreakout/comments/gv2lku/news_chopper_pans_out_as_riverside_county_sheriff/)              
+
 Sacramento law enforcement shoot protester in the head. [Tweet](https://twitter.com/xotrevonantonio/status/1266994330054479874)      
+
+Sacramento law enforcement shoot shoot protesters and THEN announce their assembly unlawful.  [Facebook](https://www.facebook.com/danny.garza.167/videos/10222535335080905/)      
 
 Santa Ana law enforcement fire upon protesters when one of them is injured on the ground. [Tweet](https://twitter.com/YourAnonCentral/status/1266991237355069442)         
 
@@ -66,10 +71,6 @@ Denver law enforcement pepper spray people recording.[Tweet](https://twitter.com
 
 Denver law enforcement shoot at person filming for no apparent reason. [Tweet](https://twitter.com/heyydnae/status/1267139396278661121)          
 
->**Connecticut**
-
->**Delaware**
-
 >**Florida**
 
 Fort Lauderdale law enforcement shove woman that is on her knees. [Tweet](https://twitter.com/thickliljawn/status/1267239498083110913)
@@ -83,10 +84,6 @@ Atlanta law enforcement shoves people with his bike. [Tweet](https://twitter.com
 Atlanta law enforcement taze a man and a woman in their  car. [Insta](https://twitter.com/Brittm_tv/status/1267147449577148423)          
 
 Atlanta law enforcement beat a man already on the ground then tackle a woman. [Tweet](https://twitter.com/ANGELCUCCl/status/1266939757252280321)         
-
->**Hawaii**
-
->**Idaho**
 
 >**Illinois**
 
@@ -107,12 +104,9 @@ Fort Wayne law enforcement shoot a man’s eye out. [Tweet](https://twitter.com/
 
 Fort Wayne law enforcement spray a person for no apparent reason. [Tweet](https://twitter.com/_isabel_a/status/1266580681251000321)                
 
-
 >**Iowa**
 
 Des Moines law enforcement arrest reporter. [Tweet](https://twitter.com/RachelSB/status/1267260438900867074)              
-
->**Kansas**
 
 >**Kentucky**
 
@@ -125,11 +119,6 @@ Louisville law enforcement shot a man DEAD. [Article / Video](https://www.wave3.
 Louisville law enforcement swarm and beat a man screaming on the ground. [Reddit](https://old.reddit.com/r/PublicFreakout/comments/gutezm/multiple_kentucky_state_police_troopers_tackled/)                      
 
 Louisville law enforcement shoot and gas crowd and reporters. [Tweet](https://twitter.com/chadloder/status/1267029301389492224)          
->**Louisiana**
-
->**Maine**
-
->**Maryland**
 
 >**Massachusetts**
 
@@ -193,17 +182,15 @@ Minneapolis law enforcement shooting at and harassing DW reporters. [Tweet](http
 
 Minneapolis law enforcement shoot a reporter with a huge camera and a helmet labeled PRESS. [Tweet](https://twitter.com/brianstelter/status/1266910826797113347)            
 
->**Mississippi**
-
 >**Missouri**
 
 Kansas City law enforcement attempt to arrest a man leading the protest then spray the crowd. [Reddit](https://old.reddit.com/r/PublicFreakout/comments/guswxo/he_wasnt_even_addressing_the_police/)              
 
 Kansas City law enforcement pepper spray and arrest a man talking at them from 15 feet. [Tweet](https://twitter.com/Elise_Villa/status/1266923192612016129)               
 
->**Montana**
-
 >**Nebraska**
+
+Omaha law enforcement officer kicks protester already on the ground. [Tweet](https://twitter.com/reecereports/status/1267629669093978117)           
 
 >**Nevada**
 
@@ -211,13 +198,8 @@ Las Vegas law enforcement beating protesters. [Tweet](https://twitter.com/bridge
 
 Las Vegas law enforcement drag and arrest a man trying to get to his car. [Instagram](https://www.instagram.com/p/CA14rooHIC6/)            
        
->**New Hampshire**
-
->**New Jersey**
-
->**New Mexico**
-
 >**New York**
+
 Brookyln law enforcement pepper spray protesters for no apparent reason. [Tweet](https://old.reddit.com/r/2020PoliceBrutality/comments/gu2u28/more_documented_aggression_in_flatbush_brooklyn/)            
 
 Brookyln law enforcement arrest a medic for no clear reason. [Reddit](https://old.reddit.com/r/PublicFreakout/comments/gu9rey/brooklyn_police_chief_arresting_medic_as_he_keeps/)              
@@ -244,9 +226,9 @@ New York law enforcement attempts to run over a cyclist in a park after he seemi
 
 New York law enforcement continuously beat a protester on the ground [Tweet](https://twitter.com/jangelooff/status/1267287782155857923)   
 
-Ney York law enforcement pepper spray Senator. [Tweet](https://twitter.com/zellnor4ny/status/1266802303807500288)          
+New York law enforcement pepper spray Senator. [Tweet](https://twitter.com/zellnor4ny/status/1266802303807500288)          
 
-Ney York law enforcement arrest a HuffPost reporter with press badge around his neck. [Tweet](https://twitter.com/HuffPost/status/1266936484692725766)            
+New York law enforcement arrest a HuffPost reporter with press badge around his neck. [Tweet](https://twitter.com/HuffPost/status/1266936484692725766)            
 
 New York law enforcement push several people to the ground, drag one of them while on the ground. [Tweet](https://twitter.com/drivenbyboredom/status/1267263490009546753)       
 
@@ -261,8 +243,6 @@ Raleigh law enforcement shoot and gas crowd. [Tweet](https://twitter.com/BarkyBo
 Raleigh law enforcement shoot at a crowd. [Tweet](https://twitter.com/LiamCurrie16/status/1266948510022320130)       
 
 Raleigh law enforcement shoot and  throw a man to the ground as he is walking away from them. [Tweet](https://twitter.com/noshoulding/status/1267279536686804993)           
-
->**North Dakota**
 
 >**Ohio**
 
@@ -288,8 +268,6 @@ Columbus law enforcement shoot protesters standing 20 feet away from them. [Twee
 
 Columbus law enforcement spray protesters kneeling 15 feet away from them. [Tweet](https://twitter.com/alyssasnyder02/status/1267300564171399176)                    
 
->**Oklahoma**
-
 >**Oregon**
 
 Portland law enforcement beat protesters with batons. [Tweet](https://twitter.com/IwriteOK/status/1266907719635632129)      
@@ -310,13 +288,9 @@ Philadelphia law enforcement throwing gas at people trapped between police and a
 
 Philadelphia law enforcement harassing reporter as he’s filming arrest. [Tweet](https://twitter.com/UR_Ninja/status/1266913490301792257)           
 
->**Rhode Island**
-
 >**South Carolina**
 
 Charleston law enforcement take man into custody for peacefully speaking. [Reddit](https://old.reddit.com/r/PublicFreakout/comments/gug7i4/young_man_gets_arrested_for_exercising_his_first/)           
-
->**South Dakota**
 
 >**Tennessee**
 
@@ -348,14 +322,11 @@ Houston law enforcement shoved a woman onto the pavement. [Tweet](https://twitte
 
 San Antonio law enforcement shoots a man twice that isn’t doing anything. [Reddit](https://old.reddit.com/r/PublicFreakout/comments/gu3s6j/police_shoots_protestor_for_no_reason/)        
 
-
 >**Utah**
 
 Salt Lake City law enforcement shoves old man with a walking cane to the ground. [Reddit](https://v.redd.it/bluggpblrz151)       
 
 Salt Lake City law enforcement shoots man with a beanbag point-blank while he is on the ground. [Reddit](https://old.reddit.com/r/nextfuckinglevel/comments/gtv4co/downtown_salt_lake_city_may_30th_2020_unarmed/)
-
->**Vermont**
 
 >**Virginia**
 
@@ -388,19 +359,19 @@ Seattle law enforcement gas a crowd for no apparent reason. [Tweet](https://twit
 
 Seattle law enforcement arrests man because cop brushed against him. [Tweet](https://twitter.com/The_Stepover/status/1267240778645925889)          
 
+Seattle law enforcement yank a protester’s umbrella then start spraying the crowd. [Reddit](https://old.reddit.com/r/Seattle/comments/gv0ru3/this_is_the_moment_it_all_happened)            
+
 >**Washington, D.C.**
+
 D.C. law enforcement attack camera crew. [Tweet](https://twitter.com/benyc/status/1267587033783992322?s=09)                 
 
 D.C. law enforcement ping reporter and hit him with a baton. [Tweet](https://twitter.com/Joshrepp/status/1267422952691294208)        
 
-D.C. law enforcement disperse a crowd, fire tear gas to let the president have a photo op. [Article + Video](https://www.vox.com/policy-and-politics/2020/6/1/21277530/trump-speech-police-violence-dc-tear-gas)                
+D.C. law enforcement disperse a crowd, fire tear gas to let the president have a photo op. [Article + Video](https://www.vox.com/policy-and-politics/2020/6/1/21277530/trump-speech-police-violence-dc-tear-gas) – [Tweet](https://twitter.com/nytimes/status/1267638330654625794)            
 
->**West Virginia**
+D.C. law enforcement brings bricks. [Reddit](https://old.reddit.com/r/2020PoliceBrutality/comments/guyybb/video_shows_cops_unloading_bricks_for_why_exactly/) – [Youtube explanation](https://www.youtube.com/watch?v=OeEG1KycPz4)           
+https://old.reddit.com/r/2020PoliceBrutality/comments/guyybb/video_shows_cops_unloading_bricks_for_why_exactly/     
 
->**Wisconsin**
-
->**Wyoming**
- 
 >**Unknown Location**
 
 Law enforcement rush and hit protesters after they waved signs and blocked their gun sight view. [Gfycat]( https://gfycat.com/tautimaginativedore)         
@@ -410,3 +381,5 @@ Law enforcement spray people kneeling. [Tweet](https://twitter.com/taesvangogh/s
 Law enforcement shoots a guy twice for no apparent reason. [Reddit](https://old.reddit.com/r/Bad_Cop_No_Donut/comments/gu3679/jackbooted_criminal_cop_shoots_man_at_point_blank)       
 
 Law enforcement officer says they will start “beating the shit out of” protesters when curfew hits. [Tweet](https://twitter.com/ajitxsingh/status/1267533879797149696)       
+
+Law enforcement officers shoot two guys standing 100 feet away from them.[Tweet](https://twitter.com/liveinochi/status/1267504585926557696)     
