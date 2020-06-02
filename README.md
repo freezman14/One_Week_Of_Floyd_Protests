@@ -1,8 +1,8 @@
 This is a list showcasing US police brutality and misconduct during the George Floyd protests. 
 
-Count in the list: 158.
+Count in the list: 159.
 
-You can access my list on [github](https://github.com/freezman14/Floyd-Protests-Police-Accountability-Links)
+You can access my Updated list on [github](https://github.com/freezman14/Floyd-Protests-Police-Accountability-Links)
 
 If you’d like to contribute please visit [/r/2020PoliceBrutality](https://old.reddit.com/r/2020PoliceBrutality/)  to post new videos.
 ____________________
@@ -295,6 +295,8 @@ Charleston law enforcement take man into custody for peacefully speaking. [Reddi
 >**Tennessee**
 
 Memphis law enforcement tackle a woman to the ground. [Tweet](https://twitter.com/Desi_Stennett/status/1266996885824380929)
+
+Memphis law enforcement shove a woman to the ground. [Facebook](https://www.facebook.com/1244600781/posts/10223457793093379/?d=n)       
 
 Murfreesboro law enforcement throw tear gas at protesters protesting. [Tweet](https://twitter.com/joe_spears7/status/1267246919673434113)              
 
