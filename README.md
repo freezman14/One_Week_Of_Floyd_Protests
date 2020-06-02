@@ -1,12 +1,12 @@
 This is a list showcasing US police brutality and misconduct during the George Floyd protests. 
 
-Count in the list: 160.
+Count in the list: 168.
 
 You can access my Updated list on [github](https://github.com/freezman14/Floyd-Protests-Police-Accountability-Links)
 
 If you’d like to contribute please visit [/r/2020PoliceBrutality](https://old.reddit.com/r/2020PoliceBrutality/) to post new videos.
 
-Quick notes: ‘shot’ here does NOT mean with “live ammo” unless specified as such. I use ‘shot’ to simply mean that a gun was fired, ‘gassed’ to mean that some sort of gas was used, and ‘spray’ to mean pepper spray or mace. Also ‘real gun’ to denote what look to be like one, I’m not an expert.
+Quick notes: ‘shot’ here does NOT mean with “live ammo” unless specified as such. “Shot” simply means that a gun was fired, ‘gassed’ means that some sort of gas was used, and “spray” means pepper spray or mace. “Real gun” denotes what looks to be like one, I’m not an expert. ‘Reporter’ is used as an umbrella term. “Law enforcement” is used as an umbrella term.
 
 Finally, understand that these videos are only snippets of what is happening and there can always be more context that we are not aware of from watching. If are a constituent of any of these areas do your part and contact government / police / news to investigate these incidents.  
 ____________________
@@ -22,6 +22,8 @@ Bentonville law enforcement gas a crowd chanting “we want peace”. [Tweet](ht
 Little Rock law enforcement shoot at and gas kneeling protesters. [Tweet angle 1](https://twitter.com/KATVShelby/status/1267554421019475972)  - [Tweet angle 2](https://twitter.com/KATVNews/status/1267509911954440194)    
 
 >**California**
+
+Hollywood law enforcement arrest people walking, you can hear on the radio “You should not be driving past anybody, stop and take somebody into custody”. [Tweet](https://twitter.com/AdoreDelano/status/1267688320735166465)    
 
 La Mesa law enforcement shoot woman in the face. [Tweet](https://twitter.com/MarajYikes/status/1267030131563827200)          
 
@@ -77,6 +79,8 @@ Denver law enforcement spray people recording.[Tweet](https://twitter.com/SaltMa
 
 Denver law enforcement shoot at person filming for no apparent reason. [Tweet](https://twitter.com/heyydnae/status/1267139396278661121)          
 
+Denver law enforcement shoot shoot at reporter standing on the sidewalk. [Youtube](https://www.youtube.com/watch?v=xNLZ7exVxq4&feature=youtu.be)         
+
 >**Florida**
 
 Fort Lauderdale law enforcement shove woman that is on her knees. [Tweet](https://twitter.com/thickliljawn/status/1267239498083110913)
@@ -91,6 +95,8 @@ Atlanta law enforcement taze a man and a woman in their  car. [Insta](https://tw
 
 Atlanta law enforcement beat a man already on the ground then tackle a woman. [Tweet](https://twitter.com/ANGELCUCCl/status/1266939757252280321)         
 
+Atlanta law enforcement arrest reporter on air. [Tweet](https://twitter.com/DanWolken/status/1266877753015570433)      
+
 >**Illinois**
 
 Chicago law enforcement repeatedly hitting protesters with batons. [Tweet](https://twitter.com/ArturasJK/status/1267252373380050947)      
@@ -98,6 +104,9 @@ Chicago law enforcement repeatedly hitting protesters with batons. [Tweet](https
 Chicago law enforcement spray reporter. [Tweet](https://twitter.com/JCB_Journo/status/1266897672545480706)              
 
 Chicago law enforcement beat a person in the parking lot near his car. [Tweet](https://twitter.com/AdrienneWrites/status/1267534983054254081)          
+
+Joliet law enforcement arrests protesters leaving. [Youtube](https://www.youtube.com/watch?v=rllO2sdj1Ek&feature=youtu.be)        
+
 
 
 >**Indiana**
@@ -113,6 +122,8 @@ Fort Wayne law enforcement spray a person for no apparent reason. [Tweet](https:
 >**Iowa**
 
 Des Moines law enforcement arrest reporter. [Tweet](https://twitter.com/RachelSB/status/1267260438900867074)              
+
+Des Moines law enforcement spray reporter that is constantly saying she’s a reporter. [Tweet](https://twitter.com/katie_akin/status/1267694434847731713)            
 
 >**Kentucky**
 
@@ -242,6 +253,8 @@ New York law enforcement push several people to the ground, drag one of them whi
 
 New York law enforcement  officer pulls out his pistol (‘real gun’) and aims at protesters. [Tweet](https://twitter.com/jangelooff/status/1267308341660979200)           
 
+New York law enforcement beat people on the street. [Article – video](https://www.thedailybeast.com/even-medical-workers-fighting-covid-say-cops-are-attacking-them-at-george-floyd-protests?ref=home)          
+
 Rochester law enforcement shoot people filming. [Tweet](https://twitter.com/bleeezyy_/status/1266894195865931778)        
 
 >**North Carolina**
@@ -274,7 +287,9 @@ Columbus law enforcement spray protesters that are sitting on the ground for no 
 
 Columbus law enforcement shoot protesters standing 20 feet away from them. [Tweet](https://twitter.com/MediocRae/status/1267102263023198211)     
 
-Columbus law enforcement spray protesters kneeling 15 feet away from them. [Tweet](https://twitter.com/alyssasnyder02/status/1267300564171399176)                    
+Columbus law enforcement spray protesters kneeling 15 feet away from them. [Tweet](https://twitter.com/alyssasnyder02/status/1267300564171399176)           
+
+Columbus law enforcement spray and harass reporters. [Tweet 1](https://twitter.com/TheLantern/status/1267651168471318528) – [Tweet 2](https://twitter.com/maevewalsh27/status/1267646128289447939)             
 
 >**Oregon**
 
@@ -297,6 +312,10 @@ Philadelphia law enforcement throwing gas at people trapped between police and a
 Philadelphia law enforcement harassing reporter as he’s filming arrest. [Tweet](https://twitter.com/UR_Ninja/status/1266913490301792257)           
 
 Philadelphia law enforcement with his badge taped. [Reddit](https://i.redd.it/2k9teypmti251.jpg)          
+
+Philadelphia law enforcement gasses a residential street with no protesters in sight. [Tweet](https://twitter.com/cynthiaschemmer/status/1267199590987714560)             
+
+Philadelphia law enforcement spray and shove protesters. [Tweet](https://twitter.com/greg_doucette/status/1267908849446653956)           
 
 >**South Carolina**
 
@@ -353,6 +372,8 @@ Richmond law enforcement stop a reporter’s car with real gun out. [Tweet](http
 
 Richmond law enforcement gas crowd. [Tweet](https://twitter.com/LVozzella/status/1267603037532704769)           
 
+Richmond law enforcement gas and shoot at protesters. [Tweet](https://twitter.com/Justiceaddwater/status/1267650345947271176)          
+
 >**Washington**
 
 Seattle law enforcement spray protestors without provocation. [Reddit](https://v.redd.it/0dxnkso0a1251)     
@@ -373,6 +394,8 @@ Seattle law enforcement arrests man because cop brushed against him. [Tweet](htt
 
 Seattle law enforcement yank a protester’s umbrella then start spraying the crowd. [Reddit](https://old.reddit.com/r/Seattle/comments/gv0ru3/this_is_the_moment_it_all_happened)            
 
+Seattle law enforcement hit MSNBC reporter with a gas canister on air. [Tweet](https://twitter.com/_christopher/status/1267673530432356357) – [Tweet, longer](https://twitter.com/Acyn/status/1267673936659021830)                  
+
 >**Washington, D.C.**
 
 D.C. law enforcement attack camera crew. [Tweet](https://twitter.com/benyc/status/1267587033783992322?s=09)                 
@@ -383,7 +406,7 @@ D.C. law enforcement disperse a crowd, fire tear gas to let the president have a
 
 D.C. law enforcement brings bricks. [Reddit](https://old.reddit.com/r/2020PoliceBrutality/comments/guyybb/video_shows_cops_unloading_bricks_for_why_exactly/) – [Youtube explanation](https://www.youtube.com/watch?v=OeEG1KycPz4)           
 
-D.C. law enforcement throw tear gas a man’s house that is sheltering protesters on his private property. [Tweet talking about it](https://twitter.com/suckmyunicornD/status/1267767217392934917)        
+D.C. law enforcement throw tear gas a man’s house that is sheltering protesters on his private property. [Tweet talking about it](https://twitter.com/suckmyunicornD/status/1267767217392934917) – [Article](https://dcist.com/story/20/06/02/dupont-dc-home-protest-rahul-dubey/)                  
 
 >**Unknown Location**
 
