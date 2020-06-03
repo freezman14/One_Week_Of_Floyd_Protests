@@ -8,7 +8,7 @@ If you’d like to contribute please visit [/r/2020PoliceBrutality](https://old.
 
 Quick notes: ‘shot’ here does NOT mean with “live ammo” unless specified as such. “Shot” simply means that a gun was fired, ‘gassed’ means that some sort of gas was used, and “spray” means pepper spray or mace. “Real gun” denotes what looks to be like one, I’m not an expert. ‘Reporter’ is used as an umbrella term. “Law enforcement” is used as an umbrella term.
 
-Finally, understand that these videos are only snippets of what is happening and there can always be more context that we are not aware of from watching. If are a constituent of any of these areas do your part and contact government / police / news to investigate these incidents.  
+Finally, understand that these videos are only snippets of what is happening and there can always be more context that we are not aware of from watching. If you are a constituent of any of these areas do your part and contact government / police / news to investigate these incidents.  
 ____________________
 
 >**Alabama**
