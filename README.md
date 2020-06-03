@@ -359,6 +359,8 @@ Austin law enforcement shoot a pregnant woman, get her out and shoot the crowd a
 
 Austin law enforcement shoot a pregnant woman. [Tweet](https://twitter.com/jayjanner/status/1267111893753307137)      
 
+Austin law enforcement shoot a man in the head, critically injuring him, and then shoot at the people trying to bring him up to get help, injuring a volunteer medic [Article + Video](https://www.kvue.com/article/news/local/austin-protester-police-struck-by-less-lethal-bean-bag-round/269-430f90a2-b6c1-4ee3-9d9c-639faf132100)
+
 Dallas law enforcement shot a woman in the face, she was coming home with groceries. [Tweet]( https://twitter.com/KevinRKrause/status/1266898396339675137)    
 
 Dallas law enforcement laughing and singing “America Fuck Yeah”, 50 feet away from there a wounded person is being treated on the ground. [Tweet](https://twitter.com/chadloder/status/1267262300919980032)         
