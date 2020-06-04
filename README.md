@@ -1,6 +1,6 @@
 This is a list showcasing US police brutality and misconduct during the George Floyd protests. 
 
-Count in the list: 204.
+Count in the list: 209.
 
 I update this list on [github](https://github.com/freezman14/Floyd-Protests-Police-Accountability-Links) which you can share.
 
@@ -23,19 +23,19 @@ Little Rock, law enforcement shoot at and gas kneeling protesters. [Tweet angle 
 
 >**California**
 
-Compton law, enforcement beat a man during an arrest, seemingly first check if anyone is watching. [Reddit](https://www.reddit.com/r/PublicFreakout/comments/gvdl01/they_secluded_him_behind_a_wall_and_looked_around/)        
+Compton, law enforcement beat a man during an arrest, seemingly first check if anyone is watching. [Reddit](https://www.reddit.com/r/PublicFreakout/comments/gvdl01/they_secluded_him_behind_a_wall_and_looked_around/)        
 
 El Centro, law enforcement points guns at residents in their apartments. [Tweet angle 1](https://twitter.com/withlovecole/status/1267692703866740737) – [Tweet angle 2](https://twitter.com/likeasifpatrick/status/1267651119091605505)         
 
 Hollywood, law enforcement arrest people walking, you can hear on the radio “You should not be driving past anybody, stop and take somebody into custody”. [Tweet](https://twitter.com/AdoreDelano/status/1267688320735166465)    
 
-La Mesa law, enforcement shoot woman in the face. [Tweet](https://twitter.com/MarajYikes/status/1267030131563827200)          
+La Mesa, law enforcement shoot woman in the face. [Tweet](https://twitter.com/MarajYikes/status/1267030131563827200)          
 
-La Mesa law, enforcement shoot and throw tear gas at protesters. [Tweet](https://twitter.com/mamitbh/status/1267030342243778561)          
+La Mesa, law enforcement shoot and throw tear gas at protesters. [Tweet](https://twitter.com/mamitbh/status/1267030342243778561)          
 
 Long Beach, law enforcement shot reporter in the throat. [Tweet](https://twitter.com/AGuzmanLopez/status/1267269781805137920)      
 
-Los Angeles law enforcement almost drives over a man. [Tweet angle 1](https://twitter.com/SophiaLeeHyun/status/1267216604388978689) - [Reddit angle 2](https://old.reddit.com/r/gifs/comments/gu8inv/la_cop_car_rams_protester_on_live_tv_chopper/)      
+Los Angeles, law enforcement almost drives over a man. [Tweet angle 1](https://twitter.com/SophiaLeeHyun/status/1267216604388978689) - [Reddit angle 2](https://old.reddit.com/r/gifs/comments/gu8inv/la_cop_car_rams_protester_on_live_tv_chopper/)      
 
 Los Angeles, law enforcement shoots rubber bullets at people watching from apartment [Tweet](https://twitter.com/Sarah_Mojarad/status/1266633046591078400?s=09)
 
@@ -59,11 +59,9 @@ Los Angeles, law enforcement block road and start arresting people seemingly at 
 
 Los Angeles, law enforcement shot woman in the head. [Tweet](https://twitter.com/andrewcurryla/status/1266906677820833793)        
 
-Oakland law, enforcement recklessly drives through protesters. [Reddit](https://old.reddit.com/r/PublicFreakout/comments/gttdkj/cop_driving_into_crowds_of_protestors/)             
+Oakland, law enforcement shoot a reporter. [Tweet](https://twitter.com/SarahBelleLin/status/1266980899301683200)           
 
-Oakland law, enforcement shoot a reporter. [Tweet](https://twitter.com/SarahBelleLin/status/1266980899301683200)           
-
-Riverside law, enforcement break a car window for no apparent reason. [Reddit](https://old.reddit.com/r/PublicFreakout/comments/gv2lku/news_chopper_pans_out_as_riverside_county_sheriff/)              
+Riverside, law enforcement break a car window for no apparent reason. [Reddit](https://old.reddit.com/r/PublicFreakout/comments/gv2lku/news_chopper_pans_out_as_riverside_county_sheriff/)              
 
 Sacramento, law enforcement shoot protester in the head. [Tweet](https://twitter.com/xotrevonantonio/status/1266994330054479874)      
 
@@ -72,6 +70,7 @@ Sacramento, law enforcement shoot protesters and THEN announce their assembly un
 Santa Ana, law enforcement fire upon protesters when one of them is injured on the ground. [Tweet]( https://twitter.com/WoeSoros/status/1266987961897201664)     
 
 San Diego, law enforcement kettle protesters into other law enforcement officers and they open fire. [Tweet](https://twitter.com/jessiepridemore/status/1268017181003939841)         
+
 San Diego, law enforcement gas protesters playing music. [Tweet](https://twitter.com/mariahalize3/status/1267225330093191168)
 
 San Jose, law enforcement enjoying himself. [Reddit](https://v.redd.it/jjclrdzp8x151)       
@@ -474,6 +473,7 @@ D.C. , law enforcement disperse a crowd, fire tear gas to let the president have
 D.C. , law enforcement is seen with neatly packed bricks in their vehicle. [Reddit](https://old.reddit.com/r/2020PoliceBrutality/comments/guyybb/video_shows_cops_unloading_bricks_for_why_exactly/) – [Youtube explanation](https://www.youtube.com/watch?v=OeEG1KycPz4)           
 
 D.C. , law enforcement throw tear gas a man’s house that is sheltering protesters on his private property. [Tweet talking about it](https://twitter.com/suckmyunicornD/status/1267767217392934917) – [Article](https://dcist.com/story/20/06/02/dupont-dc-home-protest-rahul-dubey/)  
+
 D.C. , law enforcement spray reporters on air. [Tweet](https://twitter.com/gifdsports/status/1268041853196275712)          
 
 D.C. , law enforcement leave about a grenade. [Tweet](https://twitter.com/EdFelten/status/1267838832298393602)         
