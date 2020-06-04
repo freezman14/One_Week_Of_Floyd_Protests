@@ -9,6 +9,12 @@ If you’d like to contribute please visit [/r/2020PoliceBrutality](https://old.
 Quick notes: ‘shot’ here does NOT mean with “live ammo” unless specified as such. “Shot” simply means that a gun was fired, ‘gassed’ means that some sort of gas was used, and “spray” means pepper spray or mace. “Real gun” denotes what looks to be like one, I’m not an expert. ‘Reporter’ is used as an umbrella term. “Law enforcement” is used as an umbrella term.
 
 Finally, understand that these videos are only snippets of what is happening and there can always be more context that we are not aware of from watching. If you are a constituent of any of these areas do your part and contact government / police / news to investigate these incidents.  
+
+Other resources: 
+
+•	[GeorgeFloyd Protest - police brutality videos on Twitter](https://docs.google.com/spreadsheets/d/1YmZeSxpz52qT-10tkCjWOwOGkQqle7Wd1P7ZM1wMW0E/htmlview?pru=AAABcp0A6fc*R-ESfwVIHLiLqRGD6GuLMQ#),
+•	[Police Abuse of Power Instances](https://docs.google.com/spreadsheets/u/2/d/e/2PACX-1vQnoNTUx4HU09pNioKwh6SxgLyrJXJuXKt6IIejynkVq_JBBGQQwAMR0OGsgVilHhjUUdN1WEFpXwjo/pubhtml)
+•	[/r/2020PoliceBrutality]( https://old.reddit.com/r/2020PoliceBrutality/) and [github](https://github.com/2020PB/police-brutality)
 ____________________
 
 >**Alabama**
@@ -297,6 +303,8 @@ Rochester, law enforcement shoot people filming. [Tweet](https://twitter.com/ble
 
 New York, law enforcement toss a woman around (arrest) as she’s complying with orders to disperse. [Tweet](https://twitter.com/greg_doucette/status/1268025470764888066)     
 
+New York, law enforcement officer swings at a woman’s face. [Tweet](https://twitter.com/Add_Boy/status/1268264728989626368)         
+
 >**North Carolina**
 
 Asheville, law enforcement destroy water supplies of medics. [Tweet 1](https://twitter.com/AngelaMWilhelm/status/1267974081577717762) – [Tweet 2](https://twitter.com/angelamwilhelm/status/1268056986102444033?s=21) – [Tweet 3](https://twitter.com/daveth89/status/1267974555332685824?s=19)            
@@ -319,6 +327,7 @@ Cleavland, law enforcement beat man trying to calm down the crowd. [Tweet](https
 Cincinnati, law enforcement pulled down the US flag and put up the thin blue line flag. [Tweet](https://twitter.com/P0kes/status/1267230163521191936)                  
 
 Cincinnati, law enforcement denying a woman insulin, laughing during arrest. [Tweet](https://twitter.com/totalcarb69/status/1268101978825134080)         
+Cincinnati, law enforcement arrested protesters and left them outside without food, water, shelter, or bathrooms for 10 hours. [Tweet](https://twitter.com/thepoeticgopher/status/1267456370292461568)
 
 Columbus, law enforcement sprays woman walking away from him. [Tweet](https://twitter.com/lalaitskelcey2/status/1266821476122058752)      
 
