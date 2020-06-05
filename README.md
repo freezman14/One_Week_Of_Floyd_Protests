@@ -1,6 +1,6 @@
 This is a list trying to showcase at least some of US police brutality and misconduct during the George Floyd protests. 
 
-Count in the list: 287.
+Count in the list: 295.
 
 I update this list on [github](https://github.com/freezman14/Floyd-Protests-Police-Accountability-Links) which you can share. Video achieve available. 
 
@@ -156,9 +156,23 @@ Orlando, law enforcement spray crowd. [Tweet](https://twitter.com/alexandersbde/
 
 Tampa, law enforcement starts shooting at protesters because they asked why are they being shot. [Tweet](https://twitter.com/flawlessfatigue/status/1267293467362889729)  
 
-Tampa, law enforcement montage. [Tweet](https://twitter.com/flawlessfatigue/status/1268738310349996033)      
-
 Tampa, law enforcement shoot at peaceful protesters and medics providing first aid to a woman shot in the head. [Tweet](https://twitter.com/cryinginacloset/status/1268583890119254017)
+
+Tampa, law enforcement shoot a medic providing aid. [Tweet](https://twitter.com/MedicManB/status/1267214284402155520)       
+
+Tampa, law enforcement shoot man in the head. [Tweet](https://twitter.com/lilpatriche/status/1267231262554677251)  
+
+Tampa, law enforcement shoot at peaceful protesters running away. [Tweet](https://twitter.com/toastiepeach/status/1267243847446343682)
+
+Tampa, law enforcement shoot peaceful protesters even as they are running away. [Tweet](https://twitter.com/presleylanikai/status/1267588935137538048)
+
+Tampa, law enforcement shoot peaceful protesters. [Tweet](https://twitter.com/breezybee97/status/1269016557839147010)
+
+Tampa, law enforcement spray man in the face for kneeling in front of them. [Tweet](https://twitter.com/breezybee97/status/1267244817786048512)
+
+Tampa, law enforcement spray people for filming arrest. [Tweet](https://twitter.com/That_Activist/status/1268672713025077250)   
+
+Tampa, law enforcement spray people for filming the same arrest. [Tweet](https://twitter.com/jamiebullockk/status/1268658254806163460)
 
 
 >**Georgia**
@@ -426,6 +440,8 @@ Raleigh, law enforcement shoot at a crowd. [Tweet](https://twitter.com/LiamCurri
 Raleigh, law enforcement shoot and  throw a man to the ground as he is walking away from them. [Tweet](https://twitter.com/noshoulding/status/1267279536686804993)      
 
 Raleigh, law enforcement harass business owner providing first aid, scream ‘The game is over. Get out!‘ [Article](https://www.heraldsun.com/news/local/article243202416.html) – [Tweet](https://twitter.com/bennykoval/status/1267325857892368384)
+
+Raleigh, law enforcement arrested man after he told the city council he will sue on behalf of protesters. [Article](https://indyweek.com/news/wake/conrad-james-raleigh-city-council-arrest/)
 
 Wilmington law enforcement kneel in front of protesters, then when protesters cheerfully come closer they are met with gas. [Reddit angle 1](https://old.reddit.com/r/2020PoliceBrutality/comments/gvnmk4/they_kneel_to_draw_the_crowd_then_open_fire/) – [Tweet angle 2](https://twitter.com/luvmyblakness/status/1267949292146380813)           
 
