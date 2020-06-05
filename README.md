@@ -25,7 +25,7 @@ Huntsville, law enforcement officer casually walking around randomly spraying pe
 
 Huntsville, law enforcement gas crowd and reporters and bloc their path away from the gas. [Tweet](https://twitter.com/bitchthot420/status/1268353600646008833)        
 
->** Arizona **
+>**Arizona**
 
 Phoenix, law enforcement arrest man walking home, ‘scream stop resisting’ and he calmly replies ‘I’m not’. [Tweet]( https://twitter.com/PhxProtestLIVE/status/1268390978571825156)
 
