@@ -12,7 +12,7 @@ Finally, understand that these videos are only snippets of what is happening and
 
 Other resources: 
 
-•	[GeorgeFloyd Protest - police brutality videos on Twitter](https://docs.google.com/spreadsheets/d/1YmZeSxpz52qT-10tkCjWOwOGkQqle7Wd1P7ZM1wMW0E/htmlview?pru=AAABcp0A6fc*R-ESfwVIHLiLqRGD6GuLMQ#),
+•	[GeorgeFloyd Protest - police brutality videos on Twitter](https://docs.google.com/spreadsheets/d/1YmZeSxpz52qT-10tkCjWOwOGkQqle7Wd1P7ZM1wMW0E/htmlview?pru=AAABcp0A6fc*R-ESfwVIHLiLqRGD6GuLMQ#)
 •	[Police Abuse of Power Instances](https://docs.google.com/spreadsheets/u/2/d/e/2PACX-1vQnoNTUx4HU09pNioKwh6SxgLyrJXJuXKt6IIejynkVq_JBBGQQwAMR0OGsgVilHhjUUdN1WEFpXwjo/pubhtml)
 •	[/r/2020PoliceBrutality]( https://old.reddit.com/r/2020PoliceBrutality/) and [github](https://github.com/2020PB/police-brutality)
 ____________________
@@ -327,7 +327,7 @@ Las Vegas, law enforcement randomly get out of their car and start arresting pea
 
 >**New York**
 
-New York, law enforcement peper spray protesters for no apparent reason. [Tweet](https://old.reddit.com/r/2020PoliceBrutality/comments/gu2u28/more_documented_aggression_in_flatbush_brooklyn/)            
+New York, law enforcement spray protesters for no apparent reason. [Tweet](https://old.reddit.com/r/2020PoliceBrutality/comments/gu2u28/more_documented_aggression_in_flatbush_brooklyn/)            
 
 New York, law enforcement arrest a medic for no clear reason. [Reddit](https://old.reddit.com/r/PublicFreakout/comments/gu9rey/brooklyn_police_chief_arresting_medic_as_he_keeps/)              
 
@@ -583,7 +583,7 @@ Richmond, law enforcement gas crowd. [Tweet](https://twitter.com/LVozzella/statu
 
 Richmond, law enforcement gas and shoot at protesters. [Tweet](https://twitter.com/Justiceaddwater/status/1267650345947271176) – [Tweet angle 2](https://twitter.com/BeQueerDoCrime/status/1268648919623442432)       
 
-Richmond, law enforcement gas a park, one officer is seen sprinting to get pepper spray into a protester’s face. [Tweet](https://twitter.com/myVPM/status/1267605983641075712)
+Richmond, law enforcement gas a park, one officer is seen sprinting to spray a protester’s face. [Tweet](https://twitter.com/myVPM/status/1267605983641075712)
 
 >**Washington**
 
