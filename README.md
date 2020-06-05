@@ -1,6 +1,6 @@
 This is a list showcasing US police brutality and misconduct during the George Floyd protests. 
 
-Count in the list: 253.
+Count in the list: 254.
 
 I update this list on [github](https://github.com/freezman14/Floyd-Protests-Police-Accountability-Links) which you can share. Video achieve available. 
 
