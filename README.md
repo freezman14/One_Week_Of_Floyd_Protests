@@ -1,6 +1,6 @@
 This is a list trying to showcase at least some of US police brutality and misconduct during the George Floyd protests. 
 
-Count in the list: 260.
+Count in the list: 261.
 
 I update this list on [github](https://github.com/freezman14/Floyd-Protests-Police-Accountability-Links) which you can share. Video achieve available. 
 
@@ -490,6 +490,8 @@ Austin, law enforcement shoot a pregnant woman, get her out and shoot the crowd 
 Austin, law enforcement shoot a pregnant woman. [Tweet](https://twitter.com/jayjanner/status/1267111893753307137)      
 
 Austin, law enforcement shoot a teen in the head and leave him lying on the ground. [Youtube](https://www.youtube.com/watch?v=-BGyTi-KdKc&feature=youtu.be)
+
+Austin, law enforcement shoot a man in the head, critically injuring him, and then shoot at the people trying to bring him up to get help, injuring a volunteer medic [Article + Video] (https://www.kvue.com/article/news/local/austin-protester-police-struck-by-less-lethal-bean-bag-round/269-430f90a2-b6c1-4ee3-9d9c-639faf132100)       
 
 Baytown, law enforcement beat and arrest a man for “cussing in public”. [Tweet](https://twitter.com/Dttg13M/status/1268052512512315393)
 
