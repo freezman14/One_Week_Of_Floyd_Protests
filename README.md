@@ -1,6 +1,6 @@
 This is a list showcasing US police brutality and misconduct during the George Floyd protests. 
 
-Count in the list: 254.
+Count in the list: 253.
 
 I update this list on [github](https://github.com/freezman14/Floyd-Protests-Police-Accountability-Links) which you can share. Video achieve available. 
 
@@ -533,13 +533,11 @@ Richmond, law enforcement gas a park, one officer is seen sprinting to get peppe
 
 Seattle, law enforcement spray protestors without provocation. [Reddit](https://v.redd.it/0dxnkso0a1251)     
 
-Seattle, law enforcement spray young child. [Article / video](https://www.fox10phoenix.com/news/video-shows-milk-poured-over-face-of-child-pepper-sprayed-in-seattle-protest)    
+Seattle, law enforcement spray young child. [Article / video](https://www.fox10phoenix.com/news/video-shows-milk-poured-over-face-of-child-pepper-sprayed-in-seattle-protest) - [Tweet aftermath](https://twitter.com/julesstorres/status/1266904233393217543)          
 
 Seattle, law enforcement continuously beats man on the ground. [Tweet](https://twitter.com/Jevne_Turqvie/status/1266871649288232965)     
 
 Seattle, law enforcement destroying building glass after protests. [Tweet](https://twitter.com/itstime4change6/status/1267296534959448065?s=20)      
-
-Seattle, law enforcement spray a child in the face. [Tweet aftermath](https://twitter.com/julesstorres/status/1266904233393217543)      
 
 Seattle, law enforcement beat a person on the ground. [Tweet](https://twitter.com/The_Stepover/status/1267329542865092609)              
 
