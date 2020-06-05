@@ -1,6 +1,6 @@
 This is a list trying to showcase at least some of US police brutality and misconduct during the George Floyd protests. 
 
-Count in the list: 261.
+Count in the list: 280.
 
 I update this list on [github](https://github.com/freezman14/Floyd-Protests-Police-Accountability-Links) which you can share. Video achieve available. 
 
@@ -82,9 +82,11 @@ Los Angeles, law enforcement shot woman in the head. [Tweet](https://twitter.com
 
 Los Angeles, law enforcement initiate physical violence then start gassing protesters. [Tweet](https://twitter.com/ricci_sergienko/status/1267685230799777793)        
 
-Los Angeles, law enforcement shoot homeless man, not part of the protests, in the face. [Reddit](https://i.redd.it/jxtttijbi1351.jpg) – [Facebook](https://m.facebook.com/story.php?story_fbid=2831883253587789&id=371206579655481)       
+Los Angeles, law enforcement shoot homeless man, not part of the protests, in the face. [Reddit](https://i.redd.it/jxtttijbi1351.jpg) – [Facebook](https://m.facebook.com/story.php?story_fbid=2831883253587789&id=371206579655481) – [Tweet](https://twitter.com/DavidWSpencer/status/1268952262061121536)      
 
 Oakland, law enforcement shoot a reporter. [Tweet](https://twitter.com/SarahBelleLin/status/1266980899301683200)           
+
+Oakland, law enforcement seize face masks intended for protesters. [Tweet](https://twitter.com/ryanjreilly/status/1268754050109014017) – [Article](https://www.huffpost.com/entry/black-lives-matter-coronavirus-protest-masks_n_5ed9a69bc5b68bc1a40159b9?k9)
 
 Riverside, law enforcement break a car window for no apparent reason. [Reddit](https://old.reddit.com/r/PublicFreakout/comments/gv2lku/news_chopper_pans_out_as_riverside_county_sheriff/)              
 
@@ -148,6 +150,13 @@ Orlando, law enforcement spray a protester seemingly at random. [Tweet](https://
 
 Orlando, law enforcement covering body cam with his hand. [Tweet](https://twitter.com/IGiP100/status/1268381699387404290)          
 
+Orlando, law enforcement spray crowd. [Tweet](https://twitter.com/alexandersbde/status/1266921575963598849)
+
+Tampa, law enforcement starts shooting at protesters because they asked why are they being shot. [Tweet](https://twitter.com/flawlessfatigue/status/1267293467362889729)  
+
+Tampa, law enforcement montage. [Tweet](https://twitter.com/flawlessfatigue/status/1268738310349996033)      
+
+
 >**Georgia**
 
 Atlanta, law enforcement shoves people with his bike. [Tweet](https://twitter.com/Brittm_tv/status/1266497944796225538)            
@@ -202,8 +211,9 @@ Des Moines, law enforcement spray reporter that is constantly saying she’s a r
 
 Des Moines, law enforcement arrest residents in the elevator of their apartment complex, one carrying a child. [Tweet](https://twitter.com/MeetMichael_/status/1268063447444586497)
 
-Iowa City, law enforcement gas crowd chanting ‘don’t shoot’. [Tweet](https://twitter.com/DJPAIMON/status/1268399580753858561)      
+Des Moines, law enforcement raid bar and arrest people providing first aid. [Twitter](https://twitter.com/aaronpcalvin/status/1268708285517004801) – [Facebook](https://www.facebook.com/permalink.php?story_fbid=1182620968746799&id=100009967212544)
 
+Iowa City, law enforcement gas crowd chanting ‘don’t shoot’. [Tweet](https://twitter.com/DJPAIMON/status/1268399580753858561)      
 
 >**Kentucky**
 
@@ -301,6 +311,8 @@ Kansas City, law enforcement spray man holding up a sign. [Tweet](https://twitte
 
 >**Nebraska**
 
+Lincoln, law enforcement arrest protesters for no apparent reason. [Article](https://journalstar.com/news/local/crime-and-courts/watch-now-arrested-lincoln-protester-felt-violated-we-did-nothing-wrong-but-exercise-our-constitutional/article_aa0216d0-b79b-524b-9b6a-5db44a2d49dc.html)
+
 Omaha, law enforcement officer kicks protester already on the ground. [Tweet](https://twitter.com/reecereports/status/1267629669093978117)           
 
 Omaha, law enforcement disrupt peaceful protest with gas and bullets. As protesters get out of their way, one officer shoves a woman to the ground. [Youtube](https://www.youtube.com/watch?v=5eFncnHJjec&feature=youtu.be)       
@@ -315,19 +327,21 @@ Las Vegas, law enforcement randomly get out of their car and start arresting pea
 
 >**New York**
 
-Brookyln, law enforcement peper spray protesters for no apparent reason. [Tweet](https://old.reddit.com/r/2020PoliceBrutality/comments/gu2u28/more_documented_aggression_in_flatbush_brooklyn/)            
+New York, law enforcement peper spray protesters for no apparent reason. [Tweet](https://old.reddit.com/r/2020PoliceBrutality/comments/gu2u28/more_documented_aggression_in_flatbush_brooklyn/)            
 
-Brookyln, law enforcement arrest a medic for no clear reason. [Reddit](https://old.reddit.com/r/PublicFreakout/comments/gu9rey/brooklyn_police_chief_arresting_medic_as_he_keeps/)              
+New York, law enforcement arrest a medic for no clear reason. [Reddit](https://old.reddit.com/r/PublicFreakout/comments/gu9rey/brooklyn_police_chief_arresting_medic_as_he_keeps/)              
 
-Brooklyn, law enforcement beat people with batons. [Tweet](https://twitter.com/j0ncampbell/status/1266514356071735296)     
+New York, law enforcement beat people with batons. [Tweet](https://twitter.com/j0ncampbell/status/1266514356071735296)     
 
-Brooklyn, law enforcement bloody woman’s head. [Tweet](https://twitter.com/theactivistTati/status/1266889419858075649)       
+New York, law enforcement bloody woman’s head. [Tweet](https://twitter.com/theactivistTati/status/1266889419858075649)       
 
-Bronx, law enforcement bloody a woman’s face. [Reddit](https://old.reddit.com/r/PublicFreakout/comments/gufcfv/dominican_officer_from_the_46th_precinct_on_ryer/)            
+New York, law enforcement bloody a woman’s face. [Reddit](https://old.reddit.com/r/PublicFreakout/comments/gufcfv/dominican_officer_from_the_46th_precinct_on_ryer/)            
 
-Buffalo, law enforcement charge and tackle a man with his hands up giving an interview. [Tweet](https://twitter.com/secretlaith/status/1268251322467450880)
+New York, law enforcement kettle protesters before curfew, proceed to with violent arrests. [Tweet 1](https://twitter.com/jangelooff/status/1268694880622166016) – [Tweet 2](https://twitter.com/jangelooff/status/1268695781562888195) – [Tweet 3](https://twitter.com/jangelooff/status/1268696704724930563) – [Tweet 4](https://twitter.com/jangelooff/status/1268698274371944451) – [Tweet 5](https://twitter.com/jangelooff/status/1268698743014072321) – [Tweet 6](https://twitter.com/jangelooff/status/1268699468490330112) – [Tweet 7](https://twitter.com/jangelooff/status/1268703137424121857/photo/1) – [Tweet 8](https://twitter.com/jangelooff/status/1268703945767223297) – [Tweet 9](https://twitter.com/jangelooff/status/1268710030095810560) 
 
-Buffalo, law enforcement shove an old man, he hits his head and starts bleeding out on the ground. [Tweet angle 1](https://twitter.com/WBFO/status/1268712530358292484)  [Tweet angle 2](https://twitter.com/KatieGibasTV/status/1268702159295655938)
+New York, law enforcement charge and tackle a man with his hands up giving an interview. [Tweet](https://twitter.com/secretlaith/status/1268251322467450880)
+
+New York, law enforcement shove an old man, he hits his head and starts bleeding out on the ground. [Tweet angle 1](https://twitter.com/WBFO/status/1268712530358292484)  [Tweet angle 2](https://twitter.com/KatieGibasTV/status/1268702159295655938)
 
 New York, law enforcement driving into protestors. [Angle 1](https://v.redd.it/mztm15kh00251) [Angle 2](https://gfycat.com/misguidedrecklesscod)       
 
@@ -374,6 +388,20 @@ New York, law enforcement stealing private property. [Tweet](https://twitter.com
 New York, law enforcement beat and harass faith leaders authorized to be there. [Tweet](https://twitter.com/nycDSA/status/1268415920105558016)
 
 New York, law enforcement officers they are given orders to remove name tag and obscure badge number. [Tweet](https://twitter.com/BreezeCrypto/status/1268595409733156868)         
+
+New York, law enforcement spray man to death in his cell. [Tweet](https://twitter.com/lechaIamet/status/1268655281757700097)
+
+New York, law enforcement beating on a guy walking away with his bike, asking ‘what did I do’ [Tweet](https://twitter.com/macfathom/status/1268732005178630144)
+
+New York, law enforcement arrest a man delivering food, exempt from curfew. [Tweet](https://twitter.com/KirstiKarttunen/status/1268709439252684801)       
+
+New York, law enforcement arrest a person standing on their stoop. [Tweet](https://twitter.com/KirstiKarttunen/status/1268734432988614656)
+
+New York, law enforcement arrest a man that just got off work. [Tweet](https://twitter.com/jangelooff/status/1268725753547546624)
+
+New York, law enforcement harass press. [Tweet](https://twitter.com/RosalindZAdams/status/1268729386213298180)
+
+New York, law enforcement arrest man and woman on the stoop of their home. [Twitter](https://twitter.com/shainataub/status/1268919620456665088)
 
 Rochester, law enforcement shoot people filming. [Tweet](https://twitter.com/bleeezyy_/status/1266894195865931778)        
 
@@ -439,7 +467,11 @@ Portland, law enforcement gas and beat protesters with batons before curfew. [Tw
 
 Portland, law enforcement disperse protesters before curfew. [Tweet](https://twitter.com/MrOlmos/status/1266916861267996673)   
 
-Portland, law enforcement spray paint people’s cars. [Tweet](https://twitter.com/matcha_chai/status/1268054414238945280)              
+Portland, law enforcement spray paint people’s cars. [Tweet](https://twitter.com/matcha_chai/status/1268054414238945280)          
+
+Portland, law enforcement seemingly gas a homeless camp then walk away. [Tweet](https://twitter.com/AstuteAF/status/1268125169890938882)    
+
+Salem, law enforcement having a nice chat with armed vigilantes and request for them to stay in their cars so it doesn’t look like cops are playing favorites when they will start gassing protesters. [Tweet](https://twitter.com/greg_doucette/status/1268940700944605187)    
 
 >**Pennsylvania**
 
@@ -475,6 +507,9 @@ Charleston, law enforcement take man into custody for peacefully speaking. [Redd
 
 Memphis, law enforcement tackle a woman to the ground. [Tweet](https://twitter.com/Desi_Stennett/status/1266996885824380929)
 
+Nashville, law enforcement attempt to disperse protesters with false tornado warning. [Tweet](https://twitter.com/JasonLambNC5/status/1268722320249683969)
+
+
 Memphis, law enforcement shove a woman to the ground. [Facebook](https://www.facebook.com/1244600781/posts/10223457793093379/?d=n)       
 
 Murfreesboro, law enforcement throw tear gas at protesters protesting. [Tweet](https://twitter.com/joe_spears7/status/1267246919673434113)              
@@ -489,9 +524,11 @@ Austin, law enforcement shoot a pregnant woman, get her out and shoot the crowd 
 
 Austin, law enforcement shoot a pregnant woman. [Tweet](https://twitter.com/jayjanner/status/1267111893753307137)      
 
-Austin, law enforcement shoot a teen in the head and leave him lying on the ground. [Youtube](https://www.youtube.com/watch?v=-BGyTi-KdKc&feature=youtu.be)
+Austin, law enforcement shoot a teen in the head and leave him lying on the ground. [Youtube angle 1](https://www.youtube.com/watch?v=-BGyTi-KdKc&feature=youtu.be) – [Tweet angle 2](https://twitter.com/christivnm/status/1267699288416624646/video/1)
 
 Austin, law enforcement shoot a man in the head, critically injuring him, and then shoot at the people trying to bring him up to get help, injuring a volunteer medic [Article + Video] (https://www.kvue.com/article/news/local/austin-protester-police-struck-by-less-lethal-bean-bag-round/269-430f90a2-b6c1-4ee3-9d9c-639faf132100)       
+
+Austin, law enforcement open fire at close range for being splashed with water. [Tweet](https://twitter.com/greg_doucette/status/1268763108232835075)
 
 Baytown, law enforcement beat and arrest a man for “cussing in public”. [Tweet](https://twitter.com/Dttg13M/status/1268052512512315393)
 
@@ -502,6 +539,8 @@ Dallas, law enforcement laughing and singing “America Fuck Yeah”, 50 feet aw
 Dallas, law enforcement shoot a man’s eye. [Twitter](https://twitter.com/HERCGTH/status/1266870616570900480) – [Article](https://www.wfaa.com/article/news/local/dallas-county/dallas-police-investigating-possible-use-of-force-incidents-saturday/287-1d3851d2-656c-4d40-8eac-7deac44ddf2d)                
 
 Dallas, law enforcement shoot at peaceful protesters. [Tweet](https://twitter.com/calvinwatkins/status/1266860555597500416)          
+
+Dallas, law enforcement box protesters, proceed to shoot and gas the crowd. [Tweet](https://twitter.com/greg_doucette/status/1268682435442741254)    f
 
 El Paso, law enforcement  shooting and throwing gas at crowd. [Tweet](https://twitter.com/condiegov/status/1267348339475066882)             
 
