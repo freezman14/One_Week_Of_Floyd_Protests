@@ -30,10 +30,8 @@ Huntsville, law enforcement gas crowd and reporters and bloc their path away fro
 Phoenix, law enforcement arrest man walking home, ‘scream stop resisting’ and he calmly replies ‘I’m not’. [Tweet]( https://twitter.com/PhxProtestLIVE/status/1268390978571825156)
 
 >**Arkansas**
-
-Bentonville, law enforcement shot and gas crowd changing ‘we want peace’. [Tweet](https://twitter.com/peyjobe/status/1267656498525753344)        
-
-Bentonville, law enforcement gas a crowd chanting “we want peace”. [Tweet](https://twitter.com/courtenay_roche/status/1267653137969623040) – [Tweet 2](https://twitter.com/yagirlbrookie09/status/1267647898365427714)                    
+    
+Bentonville, law enforcement gas a crowd chanting “we want peace”. [Tweet angle 1](https://twitter.com/peyjobe/status/1267656498525753344 ) - [Tweet angle 2](https://twitter.com/courtenay_roche/status/1267653137969623040) – [Tweet angle 3](https://twitter.com/yagirlbrookie09/status/1267647898365427714)                    
 
 
 Little Rock, law enforcement shoot at and gas kneeling protesters. [Tweet angle 1](https://twitter.com/KATVShelby/status/1267554421019475972)  - [Tweet angle 2](https://twitter.com/KATVNews/status/1267509911954440194)    
@@ -315,6 +313,8 @@ Bronx, law enforcement bloody a woman’s face. [Reddit](https://old.reddit.com/
 
 Buffalo, law enforcement charge and tackle a man with his hands up giving an interview. [Tweet](https://twitter.com/secretlaith/status/1268251322467450880)
 
+Buffalo, law enforcement shove an old man, he hits his head and starts bleeding out on the ground. [Tweet angle 1](https://twitter.com/WBFO/status/1268712530358292484)  [Tweet angle 2](https://twitter.com/KatieGibasTV/status/1268702159295655938)
+
 New York, law enforcement driving into protestors. [Angle 1](https://v.redd.it/mztm15kh00251) [Angle 2](https://gfycat.com/misguidedrecklesscod)       
 
 New York, law enforcement shoving a person to the ground towards metal trash bins. [Tweet](https://twitter.com/crankberries/status/1266584559245803522)     
@@ -447,6 +447,8 @@ Philadelphia, law enforcement gasses a residential street with no protesters in 
 Philadelphia, law enforcement spray and shove protesters. [Tweet](https://twitter.com/d0wnrrrrr/status/1267841238381858816)            
 
 Philadelphia, law enforcement with professional language during arrest. [Tweet](https://twitter.com/balleralert/status/1267664589279371267)        
+
+Philadelphia, law enforcement officer strikes woman to the head. [Tweet](https://twitter.com/Peopledelphia/status/1267588991655784448)        
 
 Pittsburgh, law enforcement gas peaceful protesters, spray a man on his keens. Allegedly attempt to intimidate woman that shared their misconduct.  [Tweet 1](https://twitter.com/VahiniSundar/status/1267996026482409473) – [Tweet 2](https://twitter.com/VahiniSundar/status/1267996135064559616) – [Article](https://www.post-gazette.com/news/crime-courts/2020/06/03/East-Liberty-protest-Abigail-Rubio-says-Pittsburgh-police-intimidated-video/stories/202006030158)
 
