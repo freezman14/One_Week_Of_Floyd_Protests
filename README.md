@@ -1,6 +1,6 @@
 This is a list trying to showcase at least some of US police brutality and misconduct during the George Floyd protests. 
 
-Count in the list: 280.
+Count in the list: 287.
 
 I update this list on [github](https://github.com/freezman14/Floyd-Protests-Police-Accountability-Links) which you can share. Video achieve available. 
 
@@ -100,6 +100,8 @@ San Diego, law enforcement kettle protesters into other law enforcement officers
 
 San Diego, law enforcement gas protesters playing music. [Tweet](https://twitter.com/mariahalize3/status/1267225330093191168)
 
+San Diego, law enforcement arrest protesters walking home, throw them in unmarked vehicles, refuse to tell anyone where the arrested are being taken, say ‘You follow us and you will get shot’ [Reddit](https://old.reddit.com/r/PublicFreakout/comments/gx9gkj/police_pull_up_in_an_unmarked_minivan_and_kidnap/)
+
 San Jose, law enforcement enjoying himself. [Reddit](https://v.redd.it/jjclrdzp8x151)       
 
 San Jose, the same law enforcement officer from above shooting at a man for saying "fuck you". [Reddit](https://v.redd.it/zepg0b43ly151)      
@@ -155,6 +157,8 @@ Orlando, law enforcement spray crowd. [Tweet](https://twitter.com/alexandersbde/
 Tampa, law enforcement starts shooting at protesters because they asked why are they being shot. [Tweet](https://twitter.com/flawlessfatigue/status/1267293467362889729)  
 
 Tampa, law enforcement montage. [Tweet](https://twitter.com/flawlessfatigue/status/1268738310349996033)      
+
+Tampa, law enforcement shoot at peaceful protesters and medics providing first aid to a woman shot in the head. [Tweet](https://twitter.com/cryinginacloset/status/1268583890119254017)
 
 
 >**Georgia**
@@ -228,6 +232,8 @@ Louisville, law enforcement swarm and beat a man screaming on the ground. [Reddi
 Louisville, law enforcement shot child in the eye. [Tweet](https://twitter.com/chadloder/status/1267029301389492224)          
 
 Louisville, law enforcement start shooting at cars in traffic. [Tweet](https://twitter.com/Itz5500Gillz/status/1267454024288292867)        
+
+Louisville, law enforcement shoot at peaceful marchers. [Reddit](https://old.reddit.com/r/Louisville/comments/gw5joa/peaceful_protesters_marching_in_st_mathews_get/)
 
 >**Maryland**
 
@@ -402,6 +408,8 @@ New York, law enforcement arrest a man that just got off work. [Tweet](https://t
 New York, law enforcement harass press. [Tweet](https://twitter.com/RosalindZAdams/status/1268729386213298180)
 
 New York, law enforcement arrest man and woman on the stoop of their home. [Twitter](https://twitter.com/shainataub/status/1268919620456665088)
+ 
+New York, law enforcement attack a man asking why they are randomly arresting cyclists. [Tweet](https://twitter.com/sa0un/status/1268933117827571714)
 
 Rochester, law enforcement shoot people filming. [Tweet](https://twitter.com/bleeezyy_/status/1266894195865931778)        
 
@@ -429,7 +437,9 @@ Fargo, law enforcement randomly arrest a protester while letting others pass. [T
 
 >**Ohio**
 
-Cleavland, law enforcement beat man trying to calm down the crowd. [Tweet](https://twitter.com/Caroline_On_TV/status/1266860020588843008)           
+Cleavland, law enforcement beat man trying to calm down the crowd. [Tweet](https://twitter.com/Caroline_On_TV/status/1266860020588843008)      
+
+Cleavland, law enforcement gas protesters chanting ‘don’t shoot’ [Tweet](https://twitter.com/rachelscotton/status/1266840734906318848)
 
 Cincinnati, law enforcement pulled down the US flag and put up the thin blue line flag. [Tweet](https://twitter.com/P0kes/status/1267230163521191936)                  
 
@@ -607,6 +617,8 @@ Seattle, law enforcement hit MSNBC reporter with a gas canister on air. [Tweet](
 
 Seattle, law enforcement pep talk - 'don’t kill them, but hit them hard' [Tweet](https://twitter.com/Bishop_Krystal/status/1268009974170451968)          
 
+Spokane, law enforcement fire on peaceful protesters. [Tweet](https://twitter.com/al62092/status/1269031312578318336)       
+
 >**Washington, D.C.**
 
 D.C. , law enforcement attack camera crew. [Tweet](https://twitter.com/benyc/status/1267587033783992322?s=09)                 
@@ -645,3 +657,4 @@ Law enforcement officers shoot two guys standing 100 feet away from them. [Tweet
 
 Law enforcement officer spits on man in custody. [Tweet](https://twitter.com/efrin11746673/status/1267822792541495309)      
 
+Law enforcement cut off women’s blood circulation with zip ties. [Tweet](https://twitter.com/Stinkybaby420/status/1268659449981480962)
