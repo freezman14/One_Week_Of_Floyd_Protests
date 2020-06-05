@@ -315,7 +315,7 @@ Las Vegas, law enforcement randomly get out of their car and start arresting pea
 
 >**New York**
 
-Brookyln, law enforcement peper spray protesters for no apparent reason. [Tweet](https://old.reddit.com/r/2020PoliceBrutality/comments/gu2u28/more_documented_aggression_in_flatbush_brooklyn/)            
+Brookyln, law enforcement pepper spray protesters for no apparent reason. [Tweet](https://old.reddit.com/r/2020PoliceBrutality/comments/gu2u28/more_documented_aggression_in_flatbush_brooklyn/)            
 
 Brookyln, law enforcement arrest a medic for no clear reason. [Reddit](https://old.reddit.com/r/PublicFreakout/comments/gu9rey/brooklyn_police_chief_arresting_medic_as_he_keeps/)              
 
