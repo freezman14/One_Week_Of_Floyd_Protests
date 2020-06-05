@@ -1,6 +1,6 @@
-This is a list showcasing US police brutality and misconduct during the George Floyd protests. 
+This is a list trying to showcase at least some of US police brutality and misconduct during the George Floyd protests. 
 
-Count in the list: 259.
+Count in the list: 260.
 
 I update this list on [github](https://github.com/freezman14/Floyd-Protests-Police-Accountability-Links) which you can share. Video achieve available. 
 
@@ -302,6 +302,8 @@ Kansas City, law enforcement spray man holding up a sign. [Tweet](https://twitte
 >**Nebraska**
 
 Omaha, law enforcement officer kicks protester already on the ground. [Tweet](https://twitter.com/reecereports/status/1267629669093978117)           
+
+Omaha, law enforcement disrupt peaceful protest with gas and bullets. As protesters get out of their way, one officer shoves a woman to the ground. [Youtube](https://www.youtube.com/watch?v=5eFncnHJjec&feature=youtu.be)       
 
 >**Nevada**
 
