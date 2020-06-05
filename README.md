@@ -1,6 +1,6 @@
 This is a list showcasing US police brutality and misconduct during the George Floyd protests. 
 
-Count in the list: 253.
+Count in the list: 259.
 
 I update this list on [github](https://github.com/freezman14/Floyd-Protests-Police-Accountability-Links) which you can share. Video achieve available. 
 
@@ -81,6 +81,8 @@ Los Angeles, law enforcement block road and start arresting people seemingly at 
 Los Angeles, law enforcement shot woman in the head. [Tweet](https://twitter.com/andrewcurryla/status/1266906677820833793)        
 
 Los Angeles, law enforcement initiate physical violence then start gassing protesters. [Tweet](https://twitter.com/ricci_sergienko/status/1267685230799777793)        
+
+Los Angeles, law enforcement shoot homeless man, not part of the protests, in the face. [Reddit](https://i.redd.it/jxtttijbi1351.jpg) – [Facebook](https://m.facebook.com/story.php?story_fbid=2831883253587789&id=371206579655481)       
 
 Oakland, law enforcement shoot a reporter. [Tweet](https://twitter.com/SarahBelleLin/status/1266980899301683200)           
 
@@ -167,6 +169,16 @@ Chicago, law enforcement beat a person in the parking lot near his car. [Tweet](
 Chicago, law enforcement harass a man and swing at his bike. [Tweet](https://twitter.com/johncusack/status/1266953514242228229)        
 
 Chicago, law enforcement officer starts beating on a man on the ground. [Tweet](https://twitter.com/TomSchuba/status/1268312957752160257)
+
+Chicago, law enforcement officer converse badge number. [Tweet](https://twitter.com/KyleWilkins/status/1267268393809387520)          
+
+Chicago, law enforcement officers all remove their badges, reportedly started attacking protests soon after. [Tweet](https://old.reddit.com/r/PublicFreakout/comments/gtmbmh/cops_remove_badges_minutes_before_assault/)               
+
+Chicago, law enforcement officers harass protesters going home, one screaming ‘who did this to my face’. [Tweet](https://twitter.com/ChrisDitton/status/1267675836892708864)
+
+Chicago, law enforcement officers hide badge numbers, names, don’t have body cams. [Tweet](https://twitter.com/CHICAGOCREATUR1/status/1268607315902697478)          
+
+Chicago, law enforcement officer flips off protesters. [Tweet](https://twitter.com/colinbphoto/status/1268679946609852416) – [Tweet 2](https://twitter.com/colinbphoto/status/1268679675792044032/)       
 
 Joliet, law enforcement arrests protesters leaving. [Youtube](https://www.youtube.com/watch?v=rllO2sdj1Ek&feature=youtu.be)     
    
@@ -392,6 +404,7 @@ Cleavland, law enforcement beat man trying to calm down the crowd. [Tweet](https
 Cincinnati, law enforcement pulled down the US flag and put up the thin blue line flag. [Tweet](https://twitter.com/P0kes/status/1267230163521191936)                  
 
 Cincinnati, law enforcement denying a woman insulin, laughing during arrest. [Tweet](https://twitter.com/totalcarb69/status/1268101978825134080)         
+
 Cincinnati, law enforcement arrested protesters and left them outside without food, water, shelter, or bathrooms for 10 hours. [Tweet](https://twitter.com/thepoeticgopher/status/1267456370292461568)
 
 Columbus, law enforcement sprays woman walking away from him. [Tweet](https://twitter.com/lalaitskelcey2/status/1266821476122058752)      
@@ -525,7 +538,7 @@ Richmond, law enforcement stop a reporter’s car with real gun out. [Tweet](htt
 
 Richmond, law enforcement gas crowd. [Tweet](https://twitter.com/LVozzella/status/1267603037532704769)           
 
-Richmond, law enforcement gas and shoot at protesters. [Tweet](https://twitter.com/Justiceaddwater/status/1267650345947271176)       
+Richmond, law enforcement gas and shoot at protesters. [Tweet](https://twitter.com/Justiceaddwater/status/1267650345947271176) – [Tweet angle 2](https://twitter.com/BeQueerDoCrime/status/1268648919623442432)       
 
 Richmond, law enforcement gas a park, one officer is seen sprinting to get pepper spray into a protester’s face. [Tweet](https://twitter.com/myVPM/status/1267605983641075712)
 
@@ -585,7 +598,7 @@ Law enforcement rush and hit protesters after they waved signs and blocked their
 
 Law enforcement shoots a guy twice for no apparent reason. [Reddit](https://old.reddit.com/r/Bad_Cop_No_Donut/comments/gu3679/jackbooted_criminal_cop_shoots_man_at_point_blank)       
 
-Law enforcement officers shoot two guys standing 100 feet away from them.[Tweet](https://twitter.com/liveinochi/status/1267504585926557696)        
+Law enforcement officers shoot two guys standing 100 feet away from them. [Tweet](https://twitter.com/liveinochi/status/1267504585926557696)        
 
 Law enforcement officer spits on man in custody. [Tweet](https://twitter.com/efrin11746673/status/1267822792541495309)      
 
