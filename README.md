@@ -1,6 +1,4 @@
-No longer updated.
-
-This is a list trying to showcase at least some of the US police brutality and misconduct during the George Floyd protests. 
+No longer updated. This is a list trying to showcase at least some of the US police brutality and misconduct during the George Floyd protests. 
 
 Count in the list: 299. Video achieve available. 
 
@@ -60,7 +58,7 @@ Los Angeles, law enforcement almost drives over a man. [Tweet angle 1](https://t
 
 Los Angeles, law enforcement shoots rubber bullets at people watching from apartment [Tweet](https://twitter.com/Sarah_Mojarad/status/1266633046591078400?s=09)
 
-Los Angeles, law enforcement beat people with batons. [Tweet](https://twitter.com/sleepydayhana/status/1266930544811671552)          
+Los Angeles, law enforcement initiate physical violence then start gassing protesters. [Tweet -1](https://twitter.com/sleepydayhana/status/1266930544811671552) - [Tweet – 2 longer](https://twitter.com/ricci_sergienko/status/1267685230799777793) – [Reddit – angle 2](https://old.reddit.com/r/2020PoliceBrutality/comments/gxf4vn/officer_hwang_of_the_lapd_during_saturdays/)   
 
 Los Angeles, law enforcement shot at a man on his own balcony. [Tweet](https://twitter.com/cwellborn3/status/1267318753571811329)           
 
@@ -79,8 +77,6 @@ Los Angeles, law enforcement destroy stopped car’s windows and arrest passenge
 Los Angeles, law enforcement block road and start arresting people seemingly at random. [Tweet](https://twitter.com/davidgallardo/status/1268029756722655232)      
 
 Los Angeles, law enforcement shot woman in the head. [Tweet](https://twitter.com/andrewcurryla/status/1266906677820833793)        
-
-Los Angeles, law enforcement initiate physical violence then start gassing protesters. [Tweet](https://twitter.com/ricci_sergienko/status/1267685230799777793)        
 
 Los Angeles, law enforcement shoot homeless man, not part of the protests, in the face. [Reddit](https://i.redd.it/jxtttijbi1351.jpg) – [Facebook](https://m.facebook.com/story.php?story_fbid=2831883253587789&id=371206579655481) – [Tweet](https://twitter.com/DavidWSpencer/status/1268952262061121536)      
 
@@ -137,6 +133,8 @@ Denver, law enforcement gas protesters at a park. [Tweet](https://twitter.com/mo
 Denver, law enforcement shot at reporter. [Instagram](https://www.instagram.com/p/CAxcEc7FfqQ/?utm_source=ig_embed&utm_campaign=loading)       
 
 Denver, law enforcement shot a member of the Denver “Use of Force committee”. [Tweet](https://twitter.com/elisabeth/status/1267842432605073416)         
+
+Denver, law enforcement throw a grenade at a kid, it explodes inches form his head. Lost consciousness, lost hearing. [Reddit](https://old.reddit.com/r/protest/comments/gx7voh/denver_police_knocking_a_kid_out_and_losing/)
 
 >**Florida**
 
@@ -609,7 +607,7 @@ Richmond, law enforcement spray women passing by for no apparent reason. [Tweet]
 
 Fredericksburg, law enforcement gas seemingly peaceful crowd. [Tweet](https://twitter.com/Dannyklein69/status/1267261377435099142)             
 
-Richmond, law enforcement stop a reporter’s car with real gun out. [Tweet](https://twitter.com/OliviaNBC12/status/1267342506599092224)           
+Richmond, law enforcement stop a reporter’s car with real gun out. [Tweet](https://twitter.com/OliviaNBC12/status/1267326052428328961)             
 
 Richmond, law enforcement gas crowd. [Tweet](https://twitter.com/LVozzella/status/1267603037532704769)           
 
