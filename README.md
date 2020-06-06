@@ -1,4 +1,6 @@
-No longer updated. This is a list trying to showcase at least some of the US police brutality and misconduct during the George Floyd protests. 
+No longer updated.
+
+This is a list trying to showcase at least some of the US police brutality and misconduct during the George Floyd protests. 
 
 Count in the list: 299. Video achieve available. 
 
