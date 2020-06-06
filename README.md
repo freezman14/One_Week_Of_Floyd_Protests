@@ -1,10 +1,8 @@
-This is a list trying to showcase at least some of US police brutality and misconduct during the George Floyd protests. 
+No longer updated. This is a list trying to showcase at least some of the US police brutality and misconduct during the George Floyd protests. 
 
-Count in the list: 295.
+Count in the list: 299. Video achieve available. 
 
-I update this list on [github](https://github.com/freezman14/Floyd-Protests-Police-Accountability-Links) which you can share. Video achieve available. 
-
-If you’d like to contribute please visit [/r/2020PoliceBrutality](https://old.reddit.com/r/2020PoliceBrutality/) to post new videos.
+If you’d like to contribute please visit [/r/2020PoliceBrutality](https://old.reddit.com/r/2020PoliceBrutality/) 
 
 Quick notes: ‘shot’ here does NOT mean with “live ammo” unless specified as such. “Shot” simply means that a gun was fired, ‘gassed’ means that some sort of gas was used, and “spray” means pepper spray or mace. “Real gun” denotes what looks to be like one, I’m not an expert. ‘Reporter’ is used as an umbrella term. “Law enforcement” is used as an umbrella term.
 
@@ -207,6 +205,8 @@ Chicago, law enforcement officers hide badge numbers, names, don’t have body c
 
 Chicago, law enforcement officer flips off protesters. [Tweet](https://twitter.com/colinbphoto/status/1268679946609852416) – [Tweet 2](https://twitter.com/colinbphoto/status/1268679675792044032/)       
 
+Chicago, law enforcement beat Police Board President. [Article](https://news.wttw.com/2020/06/05/police-board-president-officers-struck-me-5-times-their-batons-during-protest)
+
 Joliet, law enforcement arrests protesters leaving. [Youtube](https://www.youtube.com/watch?v=rllO2sdj1Ek&feature=youtu.be)     
    
 Streamwood, law enforcement arrests come knocking on doors because they saw a social media post planning a peaceful protest. [Tweet](https://twitter.com/boffum777/status/1268252469546622982) 
@@ -345,7 +345,11 @@ Las Vegas, law enforcement drag and arrest a man trying to get to his car. [Inst
       
 Las Vegas, law enforcement randomly get out of their car and start arresting peaceful protesters. [Tweet](https://twitter.com/besphr/status/1268637797495308288)
 
+Las Vegas, law enforcement choke man, have badge taped. [Tweet](https://twitter.com/KudokoManny/status/1268784554753622018)         
+
 >**New York**
+
+Buffalo, law enforcement shove an old man trying to return riot helmet, he hits his head and starts bleeding out on the ground. [Tweet angle 1](https://twitter.com/WBFO/status/1268712530358292484)  [Tweet angle 2](https://twitter.com/KatieGibasTV/status/1268702159295655938)
 
 New York, law enforcement spray protesters for no apparent reason. [Tweet](https://old.reddit.com/r/2020PoliceBrutality/comments/gu2u28/more_documented_aggression_in_flatbush_brooklyn/)            
 
@@ -360,8 +364,6 @@ New York, law enforcement bloody a woman’s face. [Reddit](https://old.reddit.c
 New York, law enforcement kettle protesters before curfew, proceed to with violent arrests. [Tweet 1](https://twitter.com/jangelooff/status/1268694880622166016) – [Tweet 2](https://twitter.com/jangelooff/status/1268695781562888195) – [Tweet 3](https://twitter.com/jangelooff/status/1268696704724930563) – [Tweet 4](https://twitter.com/jangelooff/status/1268698274371944451) – [Tweet 5](https://twitter.com/jangelooff/status/1268698743014072321) – [Tweet 6](https://twitter.com/jangelooff/status/1268699468490330112) – [Tweet 7](https://twitter.com/jangelooff/status/1268703137424121857/photo/1) – [Tweet 8](https://twitter.com/jangelooff/status/1268703945767223297) – [Tweet 9](https://twitter.com/jangelooff/status/1268710030095810560) 
 
 New York, law enforcement charge and tackle a man with his hands up giving an interview. [Tweet](https://twitter.com/secretlaith/status/1268251322467450880)
-
-New York, law enforcement shove an old man, he hits his head and starts bleeding out on the ground. [Tweet angle 1](https://twitter.com/WBFO/status/1268712530358292484)  [Tweet angle 2](https://twitter.com/KatieGibasTV/status/1268702159295655938)
 
 New York, law enforcement driving into protestors. [Angle 1](https://v.redd.it/mztm15kh00251) [Angle 2](https://gfycat.com/misguidedrecklesscod)       
 
@@ -552,9 +554,11 @@ Austin, law enforcement shoot a pregnant woman. [Tweet](https://twitter.com/jayj
 
 Austin, law enforcement shoot a teen in the head and leave him lying on the ground. [Youtube angle 1](https://www.youtube.com/watch?v=-BGyTi-KdKc&feature=youtu.be) – [Tweet angle 2](https://twitter.com/christivnm/status/1267699288416624646/video/1)
 
-Austin, law enforcement shoot a man in the head, critically injuring him, and then shoot at the people trying to bring him up to get help, injuring a volunteer medic [Article + Video] (https://www.kvue.com/article/news/local/austin-protester-police-struck-by-less-lethal-bean-bag-round/269-430f90a2-b6c1-4ee3-9d9c-639faf132100)       
+Austin, law enforcement shoot a man in the head, critically injuring him, and then shoot at the people trying to bring him up to get help, injuring a volunteer medic [Article + Video](https://www.kvue.com/article/news/local/austin-protester-police-struck-by-less-lethal-bean-bag-round/269-430f90a2-b6c1-4ee3-9d9c-639faf132100)       
 
 Austin, law enforcement open fire at close range for being splashed with water. [Tweet](https://twitter.com/greg_doucette/status/1268763108232835075)
+
+Austin, law enforcement shoot man in the head. [Tweet](https://twitter.com/Bryce_Newberry/status/1269050350218227716)
 
 Baytown, law enforcement beat and arrest a man for “cussing in public”. [Tweet](https://twitter.com/Dttg13M/status/1268052512512315393)
 
@@ -674,3 +678,5 @@ Law enforcement officers shoot two guys standing 100 feet away from them. [Tweet
 Law enforcement officer spits on man in custody. [Tweet](https://twitter.com/efrin11746673/status/1267822792541495309)      
 
 Law enforcement cut off women’s blood circulation with zip ties. [Tweet](https://twitter.com/Stinkybaby420/status/1268659449981480962)
+
+Law enforcement randomly shooting into traffic. [Tweet](https://twitter.com/6arianabd9/status/1269049997510623234) 
